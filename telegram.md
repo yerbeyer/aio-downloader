@@ -7,6 +7,1896 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 23:49
+---
+
+## VahidOOnLine — post 239980
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239980_1778703597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239979
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239979_1778703597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239978
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239978_1778703598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۳ اردیبهشت، اعلام کرد که مذاکره‌کنندگان ارشد ایالات متحده همچنان در حال «پیشرفت» در گفتگوهای صلح با جمهوری اسلامی هستند. این اظهارات در حالی مطرح می‌شود که تهران در هفته‌های اخیر مجموعه‌ای از پاسخ‌ها را ارائه کرده که مورد قبول ترامپ نبوده‌اند.
+
+ونس در گفتگو با خبرنگاران با اشاره به رایزنی‌های صبح امروز خود با جرد کوشنر و استیو ویتکاف و همچنین تعدادی از متحدان عرب، گفت: «فکر می‌کنم در حال پیشرفت هستیم؛ اما پرسش اساسی این است که آیا این پیشرفت برای عبور از خط قرمز رئیس‌جمهور کافی خواهد بود یا خیر».
+
+معاون رئیس‌جمهوری آمریکا تاکید کرد که دولت همچنان بر جلوگیری همیشگی از دستیابی جمهوری اسلامی به سلاح هسته‌ای متمرکز است و این موضوع را معیار اصلی هرگونه توافقی دانست. او افزود: «خط قرمز بسیار ساده است؛ رئیس‌جمهور باید اطمینان حاصل کند که مجموعه‌ای از حفاظ‌های امنیتی ایجاد شده است تا ایران هرگز نتواند به سلاح هسته‌ای دست یابد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ جی‌دی ونس، معاون رئیس‌جمهوری آمریکا با تاکید بر موضع مشترک خود با دونالد ترامپ مبنی بر ضرورت جلوگیری از هسته‌ای شدن ایران، هشدار داد که دستیابی تهران به سلاح اتمی می‌تواند به یک رقابت تسلیحاتی گسترده در منطقه منجر شود. او تصریح کرد که در صورت وقوع این اتفاق، چندین کشور عرب حوزه خلیج فارس و به دنبال آن‌ها کشورهای متعدد دیگری برای دستیابی به سلاح هسته‌ای اقدام خواهند کرد.
+
+ونس اشاعه هسته‌ای را بزرگترین تهدید برای امنیت ملی آمریکا دانست و اعلام کرد که واشنگتن در حال پیشبرد یک فرآیند دیپلماتیک تهاجمی برای مقابله با این موضوع است. او با اشاره به اینکه تمامی گزینه‌های دیپلماتیک و نظامی روی میز است، تاکید کرد که هدف نهایی، حفظ امنیت جهان و به‌ویژه مردم آمریکا در برابر تهدید اتمی جمهوری اسلامی است. به گفته او، جلوگیری از اشاعه هسته‌ای مهم‌ترین اقدام برای تضمین امنیت بلندمدت است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239976
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239976_1778703599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ واکنش رئیس فدراسیون به ترانه معین برای تیم ملی فوتبال:
+هر کسی برای ایران بخواند، روی چشم ما جا دارد
+
+♦️مهدی تاج، رئیس فدراسیون فوتبال، در حاشیه مراسم رونمایی از پیراهن تیم ملی برای جام جهانی ۲۰۲۶، گفت که این فدراسیون در جریان ترانه‌ای قرار دارد که قرار است نصرالله معین نجف‌آبادی با نام هنری معین برای تیم ملی ایران بخواند. او گفت:
+«هر کسی برای ایران بخواند، روی چشم ما جا دارد.»
+شامگاه چهارشنبه ٢٣ اردیبهشت، رونمایی از پیراهن جدید تیم ملی با حضور امیر قلعه‌نویی و احسان حاج‌صفی برگزار شد.
+جام جهانی ۲۰۲۶ از ۲۱ خرداد تا ۲۸ تیر ۱۴۰۵ به میزبانی مشترک آمریکا، کانادا و مکزیک برگزار خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239975
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239975_1778703602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، در کاخ سفید درباره مذاکرات واشینگتن و تهران گفت این گفت‌وگوها بسیار حساس است. او افزود صبح چهارشنبه مدت قابل‌توجهی با جرد کوشنر و استیو ویتکاف و همچنین با شماری از متحدان آمریکا در جهان عرب صحبت کرده و «فکر می‌کنم روند مذاکرات در حال پیشرفت است.»
+ونس تاکید کرد پرسش اصلی این است که آیا این پیشرفت خط قرمز رییس‌جمهور را تامین می‌کند یا نه، این خط قرمز بسیار ساده است؛ ایجاد تضمین‌ها و سازوکارهایی که مانع دستیابی تهران به سلاح هسته‌ای شود.
+او افزود از زمان ترک پاکستان پیشرفت قابل‌توجهی حاصل شده و هدف نهایی این است که دولت بتواند با اطمینان به مردم آمریکا بگوید دیگر نیازی نیست نگران دسترسی این رژیم بسیار خطرناک به خطرناک‌ترین سلاح‌های جهان باشند.
+ونس اضافه کرد: رییس‌جمهور فعلا ما را در مسیر دیپلماسی قرار داده و تمرکز من نیز بر همین مسیر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239974
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239974_1778703603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+میزان، خبرگزاری وابسته به قوه قضاییه جمهوری اسلامی از اعدام محمد عباسی، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد.
+
+میزان نوشت محمد عباسی سحرگاه روز چهارشنبه ۲۳ اردیبهشت در زندان قزلحصار اعدام شده است.
+
+بر اساس گزارش‌های منتشر شده مسئولان زندان قزلحصار از خانواده او برای ملاقات دعوت کرده بودند، اما پس از حضور آن‌ها، اجازه ملاقات داده نشد و خانواده پس از ترک زندان، تلفنی از اجرای حکم اعدام مطلع شدند.
+
+محمد عباسی در جریان اعتراضات دی‌ماه ۱۴۰۴ در ملارد بازداشت و سپس از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست ابوالقاسم صلواتی، به اتهام «محاربه» به اعدام محکوم شده بود.
+
+شعبه ۳۹ دیوان عالی کشور با رد فرجام‌خواهی، حکم اعدام محمد عباسی را تایید کرد. در همین پرونده، حکم ۲۵ سال زندان فاطمه عباسی، دختر او، نیز عینا تایید شده و او اکنون در بند زنان زندان اوین نگهداری می‌شود.
+
+بر اساس گزارش امتداد، ابهامات و پرسش‌های متعددی درباره روند رسیدگی و محتوای پرونده این دو متهم وجود داشته، اما وکلای مستقل به دلیل محرومیت از دسترسی به پرونده، امکان بررسی و پیگیری موثر آن را نداشته‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239972
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239972_1778703603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در اظهاراتی درباره برنامه هسته‌ای جمهوری اسلامی گفت با موضع دونالد ترامپ موافق است که جمهوری اسلامی نباید به سلاح هسته‌ای دست پیدا کند.
+
+ونس گفت دولت آمریکا در حال حاضر درگیر یک روند «فعال دیپلماتیک» برای اطمینان از عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای است، اما در عین حال تاکید کرد ترامپ گزینه‌های مختلفی، از جمله گزینه‌های دیپلماتیک و نظامی، در اختیار دارد.
+
+معاون رئیس‌جمهوری آمریکا افزود اولویت اصلی ترامپ، حفاظت از مردم آمریکا و همچنین امنیت جهان در برابر تهدید ناشی از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239971
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239971_1778703605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اصغر فرهادی، برای نمایش فیلم جدیدش با عنوان «داستان‌های موازی» در هفتاد و نهمین دوره جشنواره فیلم کن، به فرانسه سفر کرد. این ششمین حضور او در بخش مسابقه اصلی جشنواره فیلم کن است. این اثر که دهمین فیلم بلند فرهادی و دومین تجربه فیلم‌سازی او به زبان فرانسوی است، قرار است روز پنج‌شنبه ۲۴ اردیبهشت، ساعت ۲۰:۳۰ به وقت محلی در سالن لومیر کاخ جشنواره به نمایش درآید.
+
+در این درام پیچیده که مرز میان خیال و واقعیت را روایت می‌کند، ستارگان مطرح سینمای فرانسه از جمله ایزابل هوپر، کاترین دونو و ونسان کَسِل به ایفای نقش پرداخته‌اند. «داستان‌های موازی» همزمان با اکران در کن، در سینماهای سراسر فرانسه نیز روی پرده می‌رود. فرهادی که پیش از این جوایزی همچون بهترین فیلمنامه و جایزه بزرگ کن را در کارنامه دارد، امسال برای کسب نخل طلا با کارگردانان بزرگی چون پدرو آلمودوار و هیروکازو کورئیدا رقابت می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239970
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239970_1778703606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور رییس امارات متحده عربی، در شبکه ایکس نوشت جهان با دقت سفر مهم رییس‌جمهور ایالات متحده به چین و پیامدهای احتمالی آن بر تحولات منطقه را دنبال می‌کند. او تأکید کرد امارات متحده عربی بار دیگر بر اهمیت راه‌حل سیاسی و مسیر مذاکره پافشاری می‌کند؛ مسیری که همواره در مواضع و ارتباطات خود به آن پایبند بوده است.
+
+قرقاش افزود امارات متحده عربی خواهان این جنگ نبوده و صادقانه برای جلوگیری از وقوع آن تلاش کرده است. او گفت روابط عربی ـ ایرانی در خلیج فارس نمی‌تواند بر پایه رویارویی و درگیری بنا شود.
+
+مشاور رییس امارات متحده عربی همچنین تأکید کرد این کشور از حاکمیت خود دفاع خواهد کرد، اما همچنان اولویت و باور راسخ آن ترجیح راه‌حل‌های سیاسی است؛ زیرا این مسیر را راه دستیابی به صلح، ثبات و شکوفایی می‌داند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239969
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239969_1778703607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ سخنگوی ارتش جمهوری اسلامی روز چهارشنبه ۲۳ اردیبهشت اعلام کرد که تسلط تهران بر تنگه هرمز می‌تواند درآمد اقتصادی «چشمگیری» ایجاد کرده و جایگاه بین‌المللی کشور را تقویت کند. محمد اکرمی‌نیا به خبرگزاری ایسنا گفت: «نظارت ما بر تنگه هرمز درآمدهای اقتصادی قابل‌توجهی برای کشور به همراه خواهد داشت که پتانسیل آن را دارد که حتی دو برابر درآمد نفتی ما باشد؛ این اقدام همچنین نفوذ ما را در عرصه بین‌المللی افزایش می‌دهد».
+
+هم‌زمان، ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس شورای اسلامی، از نهایی شدن طرحی برای مدیریت این آبراه خبر داد. او در گفتگو با صدا و سیما تایید کرد: «جمهوری اسلامی در نظر دارد با مدیریت راهبردی تنگه هرمز، از این موقعیت استراتژیک به عنوان یک اهرم قدرت استفاده کند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239968
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239968_1778703608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رونمایی از پیراهن جدید تیم ملی فوتبال ایران برای جام جهانی ۲۰۲۶ با حضور مهدی تاج، امیر قلعه‌نویی و احسان حاج‌صفی در میدان انقلاب تهران برگزار شد؛ پیراهنی که با طرح «یوز ایرانی» و شماره ۱۲ معرفی شد و قرار است تیم ملی با آن در جام جهانی به میدان برود.
+این رونمایی در شرایطی انجام می‌شود که طی هفته‌های اخیر، بحث حضور تیم ملی ایران در جام جهانی ۲۰۲۶ و مسائل مرتبط با ویزا، امنیت و تنش‌های سیاسی منطقه‌ای بار دیگر خبرساز شده است.
+پیش‌تر مهدی تاج اعلام کرده بود فدراسیون فوتبال جمهوری اسلامی «قطعا» در جام جهانی ۲۰۲۶ شرکت خواهد کرد و در عین حال گفته بود ایران برای حضور در این رقابت‌ها ۱۰ شرط را مطرح کرده است. به گفته او، جلوگیری از مصاحبه‌های تنش‌زا، تضمین امنیت کاروان تیم ملی، رعایت پروتکل‌های امنیتی فیفا در فرودگاه و ورزشگاه‌ها، تعیین تکلیف ویزای خبرنگاران و هواداران و همچنین جلوگیری از ورود پرچم‌هایی غیر از پرچم رسمی جمهوری اسلامی به ورزشگاه‌ها، از جمله این شروط هستند.
+مسابقات جام جهانی فوتبال ۲۰۲۶ از ۲۱ خرداد تا ۲۸ تیر ۱۴۰۵ برگزار خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239967
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239967_1778703611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خبرگزاری رویترز روز چهارشنبه ۲۳ اردیبهشت به نقل از منابع آگاه گزارش داد که در جریان جنگ ایران، جنگنده‌های نیروی هوایی عربستان سعودی، اهداف متعلق به شبه‌نظامیان تحت حمایت تهران را در نزدیکی مرزهای شمالی خود با عراق بمباران کرده‌اند. این حملات که بخشی از آن در نزدیکی زمان شروع آتش‌بس رخ داده، مراکزی را هدف قرار داده است که از آن‌ها برای حملات پهپادی و موشکی به خاک عربستان سعودی و دیگر کشورهای خلیج فارس استفاده می‌شد.
+
+هم‌زمان، منابع نظامی و امنیتی عراق از شلیک راکت از خاک کویت به سمت مواضع شبه‌نظامیان در جنوب عراق در حداقل دو نوبت خبر داده‌اند. در یکی از این حملات که در ماه آوریل انجام شد، چندین شبه‌نظامی کشته شده و یک مرکز ارتباطاتی و عملیات پهپادی متعلق به «کتائب حزب‌الله» منهدم شده است. رویترز اشاره کرد که هنوز مشخص نیست این پرتاب‌ها توسط ارتش کویت انجام شده یا نیروهای آمریکایی مستقر در این کشور؛ چرا که ارتش آمریکا از اظهارنظر در این باره خودداری کرده و دولت‌های کویت و عراق نیز به درخواست‌ها برای شفاف‌سازی پاسخ نداده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239966
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239966_1778703612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز اعلام کرد که عربستان سعودی در جریان جنگ ایران، به مواضع شبه‌نظامیان مورد حمایت جمهوری اسلامی در عراق حمله کرده است.
+بر اساس این گزارش، حملات عربستان سعودی توسط جنگنده‌های نیروی هوایی این کشور و علیه مواضع شبه‌نظامی وابسته به جمهوری اسلامی در نزدیکی مرز شمالی عربستان سعودی با عراق انجام شده است. بخشی از این حملات نیز هم‌زمان با آتش‌بس ۱۸ فروردین میان تهران و واشینگتن صورت گرفته است.
+همچنین بر اساس ارزیابی‌های نظامی، منابع عراقی گفته‌اند در دست‌کم دو مورد، از خاک کویت حملات راکتی به عراق انجام شده است. رویترز نتوانسته مشخص کند این راکت‌ها توسط نیروهای مسلح کویت یا نیروهای آمریکایی مستقر در این کشور شلیک شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239965
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239965_1778703612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واتس‌اپ قابلیت جدیدی به نام «حالت ناشناس» برای چت با هوش مصنوعی متا معرفی کرده که در آن، گفتگوها ذخیره یا قابل مشاهده نخواهند بود؛ حتی برای خود شرکت متا.
+واتس‌اپ می‌گوید این قابلیت برای گفتگو درباره موضوعات حساسی مثل سلامت، روابط و مسائل مالی طراحی شده است.
+با این حال، کارشناسان هشدار داده‌اند حذف کامل تاریخچه چت‌ها می‌تواند در صورت بروز آسیب یا سوءاستفاده، پیگیری مسئولیت را دشوار کند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239964
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239964_1778703613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ حساب رسمی وزارت امور خارجه اسرائیل، روز چهارشنبه ۲۳ اردیبهشت، در شبکه اجتماعی ایکس با انتشار پیامی به نقل از دفتر نخست‌وزیری این کشور، سفر محرمانه بنیامین نتانیاهو به امارات متحده در زمان حملات به ایران را تایید کرد. دفتر نتانیاهو اعلام کرد که نخست‌وزیر اسرائیل در این سفر با شیخ محمد بن زاید، رئیس امارات متحده عربی دیدار کرده و این دیدار منجر به «یک پیشرفت تاریخی» در روابط دو کشور شده است.
+
+پیش از این گزارش‌هایی از انتقال سامانه دفاعی گنبد آهنین اسرائیل به امارات متحده نیز مطرح شده بود که از سوی مایک هاکبی، سفیر آمریکا در اسرائیل نیز تایید شد. همچنین گزارش‌هایی نیز از انجام حملاتی علیه جمهوری اسلامی از سوی امارات متحده منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامنتم زیر پست ترامپ
+
+https://www.instagram.com/reel/DYSl8QEMZja/?igsh=MTNieGh0eTQyOWtnYQ==
+بترکونینننن 💥🙌🏾حملههههه
+</div>
+
+## WithYashar — post 11167
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11167_1778703614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه استقبال از دونالد ترامپ در پکن، چین
+@withyashar
+</div>
+
+## WithYashar — post 11166
+
+
+
+
+## WithYashar — post 11165
+
+
+
+
+## WithYashar — post 11164
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک @withyashar
+</div>
+
+## WithYashar — post 11163
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11163_1778703616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام سد مجید موسی ، فرمانده نیروی هوافضای ۳پا
+تیم ملی رو هم بردن وسط میدون مثل میمونای سیرک
+@withyashar
+</div>
+
+## mwarmonitor — post 9055
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9055_1778703619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️مأموریت WENCH11 (بمب‌افکن رادارگریز B-2A Spirit) 🔸پس از سوخت‌گیری هوایی با پرواز DEED41 (تانکر KC-135 Stratotanker) بر فراز نوا اسکوشیا شرق کانادا، روی مسیر سوخت‌رسانی AR20NE، در باند VHF با Gander Radio در ارتباط بوده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸کوین وارش با رأی ۵۴ موافق در برابر ۴۵ مخالف توسط سنای آمریکا به عنوان رئیس فدرال رزرو تأیید شد. سناتور جان فترمن تنها دموکراتی بود که به این تأیید رأی مثبت داد.
+
+🔸کوین وارش یک اقتصاددان آمریکایی است که قبلاً عضو هیئت‌مدیره فدرال رزرو هم بوده و بیشتر به دیدگاه‌های نسبتاً محافظه‌کارانه در سیاست پولی مثل سخت‌گیری در کنترل تورم و تمایل به نرخ بهره بالاتر در بعضی شرایط شناخته می‌شود.
+
+🔹 او از چهره‌هایی است که معمولاً به جریان‌های اقتصادی نزدیک به جمهوری‌خواهان یا اقتصاد بازار آزاد نسبت داده می‌شود، هرچند نقش رسمی حزبی ندارد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9053
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9053_1778703621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸کشتی USNS Henry J. Kaiser (T-AO-187) متعلق به نیروی دریایی آمریکا و یک ناوشکن آمریکایی امروز در دریای عرب در مختصات زیر مشاهده شده‌اند:
+
+📍22.7488, 61.2222 و 22.0751, 61.5995
+
+🚢نفتکش گروه ضربتی ناو هواپیمابر ۳ (CSG-3) در حال انجام عملیات سوخت‌رسانی در دریا (Replenishment-at-sea) بوده و ناوشکن نیز در حال انجام عملیات دفاع چندبُعدی و مأموریت‌های امنیت دریایی است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341675
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341675_1778703622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: “We have time to try him again...”
+
+EXCLUSIVE: South Carolina Attorney General @AGAlanWilson says state will seek speedy trial after Alex Murdaugh’s murder convictions are overturned
+</div>
+
+## FoxNewsTwitter — post 341674
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341674_1778703624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance defends the fraud task force for its efforts to prioritize American citizens:
+
+"We're a generous country. We're a generous people. I love that about this country.”
+
+“But part of that generosity is that it extends to our fellow Americans. We cannot give Medicare and Medicaid benefits to everybody all over the world.”
+
+“It's going to bankrupt those programs. They ought to belong to Americans first."
+</div>
+
+## FoxNewsTwitter — post 341673
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341673_1778703626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I can do all things through Christ who strengthens me.”
+
+DHS Secretary Markwayne Mullin leans on his Christian faith as he sends a message of support to his ICE agents, defending them against media scrutiny:
+
+“If any agency needs to hear that, it's ICE. No matter what the media wants to say, I know you're doing your job every day, and I want you to know I am proud to be part of it.”
+
+“I take it with tremendous pride, and I'm willing to stand beside you and stand in front of you and defend you every single day."
+</div>
+
+## FoxNewsTwitter — post 341672
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341672_1778703628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: VP Vance makes an 'Apprentice' joke when asked about President Trump doing a crowd poll of himself and Secretary Rubio earlier this week.
+
+"I just don't think it sounds like the president of the United States to have a televised competition for who would succeed him as his apprentice."
+
+"I just think that's not at all what you would expect the president to do."
+
+"I think it's natural for him to joke around with us a little bit to play around with the idea. But I can tell you the president is as focused as any of us on making sure we do as good of a job now for the American people."
+</div>
+
+## FoxNewsTwitter — post 341671
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341671_1778703631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Senate confirms Kevin Warsh as Federal Reserve Chair in a 54–45 vote.
+
+Warsh replaces Jerome Powell, who will stay on the board as a Fed governor, despite repeated criticism from President Trump, who has been pushing the Fed to cut rates and accused Powell of making decisions "too late."
+
+Democrat John Fetterman was the only member of his party to join Republicans as the lone vote from his party to back Trump’s pick.
+</div>
+
+## FoxNewsTwitter — post 341670
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341670_1778703631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Vice President JD Vance shuts down talk of a "joint ticket" with Secretary of State Marco Rubio, insisting he is focused solely on the job the American people already elected him to do:
+
+"There are a few topics that I want to talk about less than what office I'm going to run for years down the road when I'm having a good time and trying to do good work in the job that the American people already elected me to do.”
+
+“I've answered this question, probably in any number of ways, I love Marco. I think he's a great secretary of state. He's become a very, very dear friend. But I think both of us are very much focused on accomplishing the American people's business right now.”
+</div>
+
+## FoxNewsTwitter — post 341669
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341669_1778703634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: "We believe that at least half of the hospices in the entire area around Los Angeles are fraudulent."
+
+"Today we announce 800 of those hospices have been suspended. 800 hospices that last year charged the federal taxpayer $1.4 billion will no longer be paid." - CMS Administrator Dr. Mehmet Oz
+</div>
+
+## FoxNewsTwitter — post 341668
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341668_1778703637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+VP VANCE: "So you're saying that we kicked off 800 fraudulent healthcare providers off of the Medicare system, and not a single one of them called the government and said, 'hey, you made a mistake?'"
+
+DR. OZ: "We've had a handful of calls. We're not sure they're legitimate yet, but it's less than 20 out of 800 and we're auditing them."
+
+VP VANCE:" Unbelievable... At least 780 are not even trying to claim that they're not fraudulent?"
+
+"Those are businesses that we were giving hundreds of millions, in some cases billions of dollars to, not to provide services, but to make a fraudster rich. It's just completely insane."
+</div>
+
+## FoxNewsTwitter — post 341667
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341667_1778703639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance rips the Biden administration’s failure to prevent medical identity theft after a California psychotherapist was stripped of her benefits.
+
+Vance highlights the doctor's case — 40 years in the medical field only to have her Medicare "turned off" because a fraudster exploited the system.
+
+"A fraudster had stolen her identity and signed her up for healthcare services that she didn't need, and so she had been turned off of the healthcare services that she did need."
+
+“This happens way too much in the United States of America. And it happens because until recently, we did not have a government or an administration that actually took the fraud program and took anti-fraud prevention seriously."
+</div>
+
+## FoxNewsTwitter — post 341666
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341666_1778703642.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP Vance calls out officials in Hawaii for refusing to crack down on Medicaid fraud in the state:
+
+"Guess how many convictions or indictments has Hawaii had over the last few years in its Medicaid fraud program? The answer is zero."
+
+"Not a single indictment, not a single conviction, because the administrators of the Hawaii program just don't take it seriously. They don't think that fraud is a big enough problem."
+</div>
+
+## FoxNewsTwitter — post 341665
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341665_1778703644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Vice President JD Vance reveals how fraudulent healthcare providers are taking advantage of patients and exploiting the American taxpayer:
+
+"You have people who've been prescribed medications that they don't even need.
+
+“Sometimes they've had drugs put into their bodies that they don't need because fraudsters have actually encouraged false prescriptions and false administration to medications.”
+
+“It's a defrauding of the American taxpayer, but it's a violation of the trust that should exist between every American and the people who prescribe the medications."
+</div>
+
+## pm_afshaa — post 90708
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90708_1778703646.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی‌آبادی، وزیر نیرو: با همکاری مردم و افزایش ظرفیت تولید، وضعیت امسال از سال گذشته به مراتب بهتر خواهد بود و امیدواریم تابستان بدون خاموشی سپری بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90707
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90707_1778703647.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ: صادرات نفت ایران از جزیره خارک برای اولین بار از زمان شروع جنگ متوقف شده و تصاویر ماهواره‌ای نشان میده که مخازن ذخیره‌سازی نفت تقریباً به ظرفیت کامل خود رسیدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✍🏻 دوستان عزیز، همون‌طور که احتمالاً متوجه شدید، در یک هفته گذشته به دلایل مختلفی فعالیت ما کمتر شده.
+
+🔹در این مدت پیام‌های زیادی داشتیم که درخواست آموزش «روش جدید سنایی» رو داشتن. وقتی بررسی کردیم، متوجه شدیم خود ایشون زحمت تهیه ویدیوی آموزشی رو کشیدن؛ بنابراین نیازی به آموزش مجدد نبود.
+
+🔸برای اطمینان بیشتر، این آموزش رو به چند نفر از دوستان دادیم تا تست کنن. بیشتر افراد موفق به اجرا نشدن، اما یکی از کاربران تونست متصل بشه. طبق بررسی‌های ایشون، این روش به‌شدت به رنج آی‌پی‌ها (هم سرور ایران و هم خارج) وابسته است. مشکل اصلی اینجاست که بعد از اتصال و مصرف حجم کمی از اینترنت، ارتباط قطع می‌شه و باید آی‌پی رو عوض کرد؛ هرچند آی‌پی قبلی بعد از ۱ تا ۲ ساعت دوباره قابل استفاده می‌شه.
+
+🔻متأسفانه در این بین، عده‌ای بدون این‌که تست درستی از پایداری تانل بگیرن، شروع به آموزش کردن که نتیجه‌اش فقط ضرر مالی برای کاربران بوده. چون کاربرا رفتن سرورهای گرون قیمت رو خریداری کردن که البته تعداد این افراد اصلا کم نبوده. (نمونه‌اش رو در عکس ضمیمه می‌بینید).
+
+🟢 در مجموع، به نظر می‌رسه این روش هنوز پایدار نیست، اما از بچه‌های تیم خواستیم تست‌های بیشتری روش انجام بدن. اگر خودتون هم مایلید آموزش رو ببینید، می‌تونید مستقیماً به کانال یا گروه سنایی مراجعه کنید.
+
+🆔 @iaghapour
+</div>
+
+## VahidOnline — post 75453
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75453_1778703648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا، اعلام کرد که واشینگتن معتقد است در مذاکرات با ایران «پیشرفت» حاصل شده، اما هنوز مشخص نیست این پیشرفت برای عبور از خط قرمز دونالد ترامپ کافی باشد یا نه.
+
+آقای ونس روز چهارشنبه در کاخ سفید به خبرنگاران گفت صبح همان روز با جرد کوشنر و استیو ویتکاف درباره ایران گفت‌وگو کرده و همچنین با مقام‌های عرب در تماس بوده است. او افزود: «سوال اصلی این است که آیا این پیشرفت به اندازه‌ای هست که خط قرمز رئیس‌جمهور را تأمین کند یا نه.»
+
+به گفته معاون رئیس‌جمهور آمریکا، خط قرمز ترامپ این است که ایالات متحده مطمئن شود «سازوکارهای کافی» ایجاد شده تا ایران هرگز به سلاح هسته‌ای دست پیدا نکند.
+اظهارات ونس در حالی مطرح می‌شود که ترامپ پیش‌تر پیشنهاد تازه ایران در مذاکرات را «غیرقابل قبول» توصیف کرده بود.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75452
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75452_1778703649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری اسلامی شامگاه چهارشنبه ۲۳ اردیبهشت اعلام کرد که محمد عباسی، یکی از بازداشت‌شدگان اعتراضات دی‌ماه سال گذشته به اتهام قتل یک مأمور امنیتی اعدام شده است.
+
+خبرگزاری میزان، وابسته به این قوه، گفته است که او بعد از تأیید حکم توسط دیوان‌عالی کشور و با توجه به «تقاضای اولیا‌ء دم»، «قصاص» شد.
+
+ساعتی پیش‌تر، پایگاه خبری هرانا به نقل از یک منبع نزدیک به خانواده این زندانی نوشت که مسئولان زندان قزلحصار از خانواده محمد عباسی خواستند که برای ملاقات با او به زندان مراجعه کنند، «اما پس از حضور خانواده در زندان، این امکان از نزدیکان او سلب شد. پس از خروج خانواده عباسی از زندان، آنها در تماسی تلفنی از اجرای حکم اعدام محمد عباسی مطلع شدند.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات…
+</div>
+
+## kianmeli1 — post 87390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد
+
+قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات معرفی کرده بود اما بلافاصله در فرودگاه بازداشت شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87389
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87389_1778703649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی
+
+کویت در تلاشی آشکار برای ایجاد اختلاف، به طور غیرقانونی به یک قایق ایرانی حمله کرده و ۴ نفر از شهروندان ما را در خلیج فارس بازداشت کرده است. این اقدام غیرقانونی در نزدیکی جزیره‌ای که ایالات متحده از آن برای حمله به ایران استفاده کرده است، رخ داده است.
+
+ما خواستار آزادی فوری اتباع خود هستیم و حق پاسخگویی را برای خود محفوظ می‌داریم.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87388
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87388_1778703650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عباس عراقچی، امروز برای شرکت در نشست وزیران امور خارجه کشورهای عضو بریکس (برزیل، روسیه، هند، چین و آفریقای جنوبی+) وارد دهلی، هند شد. این در حالی است که مذاکرات آمریکا و ایران همچنان ادامه دارد اما متوقف شده است. طبق گزارش‌ها و ارزیابی‌های تعدادی از کارشناسان، انتظار می‌رود ایران برای صدور بیانیه مشترک از سوی بلوک اقتصادی به رهبری چین در حمایت از منافع ایران تلاش کند.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87387
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87387_1778703651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هفتمین رأی‌گیری سنای آمریکا برای پایان جنگ با ایران شکست خورد
+
+مجلس سنا برای هفتمین‌بار قطعنامهٔ پیشنهادی برای توقف جنگ با ایران را رد کرد.
+
+جمهوری‌خواهان تقریباً متحد عمل کردند تا اولین تلاش از زمان عبور ترامپ از ضرب‌الاجل ۶۰ روزه برای دریافت مجوز جنگ از کنگره را ناکام بگذارند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87386
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87386_1778703652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز؛
+
+منابع متعددی که از جزئیات ماجرا آگاه هستند، اعلام کردند که در جریان جنگ با ایران، جنگنده‌های عربستان سعودی اهدافی مرتبط با شبه‌نظامیان تحت حمایت تهران را در عراق بمباران کردند. بعلاوه، حملات تلافی‌جویانه‌ای نیز از کویت به داخل خاک عراق انجام شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87385
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87385_1778703652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از اعدام محمد عباسی از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337056
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337056_1778703653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+https://iranintl.com/202605131072
+</div>
+
+## IranIntlTV — post 337055
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337055" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337054
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337054_1778703654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در واکنش به تورم و گرانی‌های بی‌سابقه، از وزارت جهاد کشاورزی خواست برای کنترل قیمت‌ها همه توانش را به کار گیرد. او پیشتر گفته بود، کشور به شدت به صرفه‌جویی نیاز دارد.
+
+گفت‌وگو با سیامک جوادی ، مدرس و پژوهشگر اقتصاد مالی در دانشگاه تگزاس
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337053
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337053_1778703656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، در کاخ سفید درباره مذاکرات واشینگتن و تهران گفت این گفت‌وگوها بسیار حساس است. او افزود صبح چهارشنبه مدت قابل‌توجهی با جرد کوشنر و استیو ویتکاف و همچنین با شماری از متحدان آمریکا در جهان عرب صحبت کرده و «فکر می‌کنم روند مذاکرات در حال پیشرفت است.»
+ونس تاکید کرد پرسش اصلی این است که آیا این پیشرفت خط قرمز رییس‌جمهور را تامین می‌کند یا نه، این خط قرمز بسیار ساده است؛ ایجاد تضمین‌ها و سازوکارهایی که مانع دستیابی تهران به سلاح هسته‌ای شود.
+او افزود از زمان ترک پاکستان پیشرفت قابل‌توجهی حاصل شده و هدف نهایی این است که دولت بتواند با اطمینان به مردم آمریکا بگوید دیگر نیازی نیست نگران دسترسی این رژیم بسیار خطرناک به خطرناک‌ترین سلاح‌های جهان باشند.
+ونس اضافه کرد: رییس‌جمهور فعلا ما را در مسیر دیپلماسی قرار داده و تمرکز من نیز بر همین مسیر است.
+https://iranintl.com/202605130999
+</div>
+
+## IranIntlTV — post 337052
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337052_1778703657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد بحرین، کویت، قطر و امارات متحده عربی برای حضور در جلسه بعدی ناتو در ترکیه دعوت شده‌اند. بلومبرگ نوشته دعوت‌ها در ادامه تلاش‌های ناتو برای مقابله با تهدیدهای جمهوری اسلامی انجام شده است.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی در موسسه واشینگتن
+@iranintltv
+</div>
+
+## IranIntlTV — post 337051
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337051_1778703659.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻همزمان با تحریم‌های بانکی و مشکلات مالی فدراسیون فوتبال ایران، جمینای (هوش مصنوعی شرکت گوگل) اعلام کرد حامی مالی و فناوری تیم‌های ملی عراق و مراکش در جام جهانی ٢٠٢۶ شده است. گوگل گفته قصد دارد با این قرارداد اسپانسری، «فاصله میان تیم‌ها و هواداران جهانی آنها را کاهش دهد.»
+
+🔹در این بیانیه آمده است: «ما با هیجان اعلام می‌کنیم که گوگل جمینای به عنوان حامی رسمی فناوری تیم‌های ملی فوتبال عراق و مراکش انتخاب شده است. این حمایت با بهره‌گیری از فناوری پیشرفته هوش مصنوعی ما، فرهنگ غنی ورزشی منطقه را گرامی می‌دارد و تجربه هواداران را متحول خواهد کرد.»
+
+🔹گوگل جمینای گفته در همکاری با فدراسیون‌های فوتبال، طی سه ماه آینده مجموعه‌ای از برنامه‌های هوادارمحور اجرا خواهد شد: «هواداران می‌توانند با استفاده از مدل تبدیل متن به تصویر جمینی موسوم به «نانو بنانا» تصاویر تشویقی اختصاصی خلق کنند یا با مدل تبدیل متن به موسیقی «لایریا» سرودهای تیمی بسازند و حمایت خود را به شکلی زنده تجربه کنند؛ گویی در زمین حضور دارند.»
+
+جزییات بیشتر را اینجا بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337050
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337050_1778703660.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور رییس امارات متحده عربی، در شبکه ایکس نوشت جهان با دقت سفر مهم رییس‌جمهور ایالات متحده به چین و پیامدهای احتمالی آن بر تحولات منطقه را دنبال می‌کند. او تأکید کرد امارات متحده عربی بار دیگر بر اهمیت راه‌حل سیاسی و مسیر مذاکره پافشاری می‌کند؛ مسیری که همواره در مواضع و ارتباطات خود به آن پایبند بوده است.
+
+قرقاش افزود امارات متحده عربی خواهان این جنگ نبوده و صادقانه برای جلوگیری از وقوع آن تلاش کرده است. او گفت روابط عربی ـ ایرانی در خلیج فارس نمی‌تواند بر پایه رویارویی و درگیری بنا شود.
+
+مشاور رییس امارات متحده عربی همچنین تأکید کرد این کشور از حاکمیت خود دفاع خواهد کرد، اما همچنان اولویت و باور راسخ آن ترجیح راه‌حل‌های سیاسی است؛ زیرا این مسیر را راه دستیابی به صلح، ثبات و شکوفایی می‌داند.
+https://iranintl.com/202605131401
+</div>
+
+## IranIntlTV — post 337049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بحران رهبری استارمر بر سخنرانی سالانه پادشاه بریتانیا سایه انداخت
+
+هم‌زمان با ارائه برنامه دولت بریتانیا از سوی پادشاه بریتانیا در مجلس اعیان این کشور، کی‌یر استارمر با جدی‌ترین تهدید علیه رهبری خود روبه‌روست. رسانه‌ها گزارش دادند وزیر بهداشت او آماده استعفاست تا وارد رقابت حزبی برای جایگزینی نخست‌وزیر شود.
+
+روزنامه تایمز چهارشنبه ۲۳ اردیبهشت گزارش داد که احتمال‌ استعفای وِسلی اِستریتینگ، وزیر بهداشت کابینه استارمر، قوت گرفته است. دور از انتظار نیست که او پنج‌شنبه کنار برود و با ورود به رقابت‌های حزب کارگر برای تغییر رهبر حزب، رویدادها به سمتی برود که برنامه دولت استارمر که چارلز آن را با شکوه و تشریفات فراوان تشریح کرد، هرگز به مرحله اجرا نرسد.
+
+تایمز نوشت که دفتر استریتینگ به درخواست برای اظهارنظر درباره این گزارش پاسخ نداد. سخنگوی استارمر هم گفت نخست‌وزیر به وزیر بهداشت خود اعتماد کامل دارد، اما از اظهارنظر درباره دیدار پیشین میان این دو نفر خودداری کرد.
+
+تیم وزیر بهداشت گفت او نیز درباره آن دیدار، که در دفتر استارمر در داونینگ‌استریت برگزار شد، اظهارنظر نخواهد کرد تا توجه‌ها را از سخنرانی پادشاه منحرف نکند.
+
+استریتینگ بعدتر در شبکه ایکس به تمجید از دستاوردهای خود در کاهش زمان انتظار در نظام درمانی دولتی بریتانیا پرداخت. او نوشت: «کارهای زیادی انجام شده، کارهای زیادی هم مانده است»؛ اما به این گزارش اشاره‌ای نکرد.
+چالش در دولت بر سر چیست؟
+
+مساله با شکست سنگین حزب کارگر در انتخابات شوراهای محلی انگلستان شروع شد. این حزب در انتخابات ۱۸ اردیبهشت بخش قابل توجهی از رای‌ها را به‌ویژه در مناطقی از مرکز و شمال انگلستان و همچنین در بخش‌هایی از لندن که پایگاه سنتی این حزب به شمار می‌آید، از دست داد.
+
+در مقابل، حزب راستگرای «اصلاح بریتانیا» به رهبری نایجل فاراژ، بیش از ۳۵۰ کرسی در شوراهای محلی انگلستان به دست آورد و حالا اگر همین مسیر را در انتخابات ملی ادامه دهد، به اپوزیسیون اصلی در اسکاتلند و ولز تبدیل می‌شود.
+
+خبرگزاری رویترز پس از اعلام رسمی این شکست حزب کارگر، نتایج انتخابات محلی را نشان‌دهنده عمق نارضایتی از نخست‌وزیر بریتانیا خواند و نوشت که تنها دو سال پس از پیروزی قاطع او در انتخابات سراسری، تردیدها را درباره آینده سیاسی‌اش افزایش داد.
+
+برخی نمایندگان حزب کارگر پس از نتایج انتخابات هشدار دادند که اگر این حزب در اسکاتلند عملکرد ضعیفی داشته باشد، قدرت را در ولز از دست بدهد و نتواند بخش زیادی از حدود ۲۵۰۰ کرسی تحت دفاع خود در انگلستان را حفظ کند، فشارها بر استارمر برای کناره‌گیری یا دست‌کم تعیین جدول زمانی خروجش از قدرت افزایش خواهد یافت.
+با این حال، هم‌زمان گزارش‌هایی از تلاش برخی از اعضای حزب برای ایجاد تغییرات بنیادین در دفتر نخست‌وزیری و جایگزینی استارمر با فردی دیگر منتشر شد.
+
+در این میان استارمر کوشیده است چالش‌ها علیه اقتدار خود را کم‌اهمیت جلوه دهد و سخنرانی پادشاه بریتانیا که از سوی دولت نوشته و از سوی پادشاه قرائت می‌شود، برنامه‌هایی را برای تقویت رشد اقتصادی، امنیت انرژی و دفاع اعلام کرد.
+
+سخنرانی پادشاه در بریتانیا در واقع ابزار رسمی دولت برای اعلام برنامه‌های سال آینده است، اما سخنرانی ۲۳ اردیبهشت چارلز، به جای نمایش دادنِ اقتدار و برنامه‌ریزی دولت استارمر، زیر سایه بحران رهبری او و گزارش‌ها درباره احتمال استعفای وزیر بهداشت و آغاز رقابت برای جانشینی نخست‌وزیر قرار گرفت.
+
+این موضوع، در کنار اخبار مرتبط با تلاش‌های استریتینگ احتمال ورود رقبای دیگر به رقابت‌های درون‌حزبی علیه نخست‌وزیر کنونی را افزایش داده است. علاوه بر وزیر بهداشت، نام اندی برنهم، شهردار منچستر، و آنجلا رینر، معاون پیشین نخست‌وزیر، نیز مطرح شده است، هرچند هر دو آنها پیش از آنکه بتوانند نامزد شوند، باید موانعی را از پیش رو بردارند.
+🔗وب‌سایت ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337048
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337048_1778703661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز اعلام کرد که عربستان سعودی در جریان جنگ ایران، به مواضع شبه‌نظامیان مورد حمایت جمهوری اسلامی در عراق حمله کرده است.
+بر اساس این گزارش، حملات عربستان سعودی توسط جنگنده‌های نیروی هوایی این کشور و علیه مواضع شبه‌نظامی وابسته به جمهوری اسلامی در نزدیکی مرز شمالی عربستان سعودی با عراق انجام شده است. بخشی از این حملات نیز هم‌زمان با آتش‌بس ۱۸ فروردین میان تهران و واشینگتن صورت گرفته است.
+همچنین بر اساس ارزیابی‌های نظامی، منابع عراقی گفته‌اند در دست‌کم دو مورد، از خاک کویت حملات راکتی به عراق انجام شده است. رویترز نتوانسته مشخص کند این راکت‌ها توسط نیروهای مسلح کویت یا نیروهای آمریکایی مستقر در این کشور شلیک شده‌اند.
+https://iranintl.com/202605137468
+</div>
+
+## IranIntlTV — post 337047
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337047_1778703661.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+
+@iranintltv
+</div>
+
+## Shin_Persian — post 5992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 13 May 2026 19:31:31 UTC
+
+"Saudi warplanes struck militias in Iraq during war"
+- Reuters
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+فارسی
+
+"جنگنده‌های سعودی طی جنگ شبه‌نظامیان را در عراق هدف قرار دادند"
+- رویترز
+
+https://www.reuters.com/world/middle-east/saudi-warplanes-struck-militias-iraq-during-war-sources-say-2026-05-13/
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105418
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105418_1778703663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+</div>
+
+## ManotoTV — post 105417
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105417_1778703664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+میزان، خبرگزاری وابسته به قوه قضاییه جمهوری اسلامی از اعدام محمد عباسی، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد.
+
+میزان نوشت محمد عباسی سحرگاه روز چهارشنبه ۲۳ اردیبهشت در زندان قزلحصار اعدام شده است.
+
+بر اساس گزارش‌های منتشر شده مسئولان زندان قزلحصار از خانواده او برای ملاقات دعوت کرده بودند، اما پس از حضور آن‌ها، اجازه ملاقات داده نشد و خانواده پس از ترک زندان، تلفنی از اجرای حکم اعدام مطلع شدند.
+
+محمد عباسی در جریان اعتراضات دی‌ماه ۱۴۰۴ در ملارد بازداشت و سپس از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست ابوالقاسم صلواتی، به اتهام «محاربه» به اعدام محکوم شده بود.
+
+شعبه ۳۹ دیوان عالی کشور با رد فرجام‌خواهی، حکم اعدام محمد عباسی را تایید کرد. در همین پرونده، حکم ۲۵ سال زندان فاطمه عباسی، دختر او، نیز عینا تایید شده و او اکنون در بند زنان زندان اوین نگهداری می‌شود.
+
+بر اساس گزارش امتداد، ابهامات و پرسش‌های متعددی درباره روند رسیدگی و محتوای پرونده این دو متهم وجود داشته، اما وکلای مستقل به دلیل محرومیت از دسترسی به پرونده، امکان بررسی و پیگیری موثر آن را نداشته‌اند.
+</div>
+
+## ManotoTV — post 105416
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105416_1778703664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+درد دلی با چاشنی کمی شوخی
+از واقعیتی تلخ از زندگی روزمره مردم
+</div>
+
+## ManotoTV — post 105415
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105415_1778703667.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در اظهاراتی درباره برنامه هسته‌ای جمهوری اسلامی گفت با موضع دونالد ترامپ موافق است که جمهوری اسلامی نباید به سلاح هسته‌ای دست پیدا کند.
+
+ونس گفت دولت آمریکا در حال حاضر درگیر یک روند «فعال دیپلماتیک» برای اطمینان از عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای است، اما در عین حال تاکید کرد ترامپ گزینه‌های مختلفی، از جمله گزینه‌های دیپلماتیک و نظامی، در اختیار دارد.
+
+معاون رئیس‌جمهوری آمریکا افزود اولویت اصلی ترامپ، حفاظت از مردم آمریکا و همچنین امنیت جهان در برابر تهدید ناشی از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
+</div>
+
+## ManotoTV — post 105414
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105414_1778703668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واتس‌اپ قابلیت جدیدی به نام «حالت ناشناس» برای چت با هوش مصنوعی متا معرفی کرده که در آن، گفتگوها ذخیره یا قابل مشاهده نخواهند بود؛ حتی برای خود شرکت متا.
+واتس‌اپ می‌گوید این قابلیت برای گفتگو درباره موضوعات حساسی مثل سلامت، روابط و مسائل مالی طراحی شده است.
+با این حال، کارشناسان هشدار داده‌اند حذف کامل تاریخچه چت‌ها می‌تواند در صورت بروز آسیب یا سوءاستفاده، پیگیری مسئولیت را دشوار کند.
+</div>
+
+## FarsiVOA — post 217666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
+
+▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149643.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدئوی گفت‌وگو با دو ملی‌پوش فوتبال ایران در تلویزیون حکومتی جمهوری اسلامی درباره وضعیت تحصیل و دانشگاه محل تحصیل‌شان، در شبکه‌های اجتماعی خبرساز شده و بار دیگر حاشیه‌های مربوط به ادعاهای تحصیلی برخی بازیکنان تیم ملی را به یاد کاربران آورده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی جوانمردی: جایگاە چین در بحران ایران و احتمال توافق
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217662
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217662_1778703669.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، روز چهارشنبه ۲۳ اردیبهشت وارد پکن شد. او در بدو ورود، از سوی معاون رئیس‌جمهوری چین، همراه با گارد احترام نظامی و شعار «خوش آمدید» حدود ۳۰۰ نوجوان و جوان چینی که پرچم‌های آمریکا و چین را در دست داشتند مورد استقبال قرار گرفت.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217661
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217661_1778703670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش فرهاد فلاحی، خبرنگار صدای آمریکا، از پکن؛ پوشش ویژه سفر پرزیدنت ترامپ به چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وقوع زلزله‌های متعدد در استان تهران نشانه چیست و شهروندان باید چه کنند؟ گفت‌وگو با عطارد عزیزی نمینی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر انرژی آمریکا: رژیم ایران «به‌طرزی نگران‌کننده‌» به سلاح هسته‌ای نزدیک شده است
+
+▪️کریس رایت، وزیر انرژی ایالات متحده، روز چهارشنبه ۲۳ اردیبهشت هشدار داد که رژیم ایران به مرحله‌ای «بسیار نگران‌کننده» در برنامه هسته‌ای خود رسیده است و تنها چند هفته با تولید اورانیوم در سطح تسلیحاتی فاصله دارد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/nypost-chris-wright-iran-close-to-nuclear-weapon/8149630.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتیجه منفی آزمایش‌ها در ایتالیا و اسپانیا برای یافتن رد پای جهانی ویروس هانتا
+
+▪️وزارت‌ بهداشت دو کشور ایتالیا و اسپانیا، روز چهارشنبه ۲۳ اردیبهشت، اعلام کردند نتیجه آزمایش‌های هفده نفری که مشکوک به ابتلا به ویروس هانتا بودند، منفی بوده‌ است. این در حالی است که دولت‌های جهان همچنان به هدف جلوگیری از گسترش این ویروس در تلاش ردیابی موارد احتمالی ابتلا به بیماری هستند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/hantavirus-cruise-spain-france-health-test/8149628.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار بنیاد نرگس: جسم نرگس محمدی توان تحمل هیچ «فشار مضاعفی» را ندارد
+
+◾️بنیاد نرگس، روز چهارشنبه ۲۳ اردیبهشت، در بیانیه‌ای ضمن تشریح روند درمانی نرگس محمدی در زنجان و تهران، اعلام کرد: «این زندانی سیاسی، نیازمند درمان دست‌کم ۸ ماهه است و بدنش در وضعیت فعلی توان تحمل هیچ‌گونه فشار مضاعف و بازگشت به شرایط حبس را ندارد.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/narges-mohammadi-prison-pressure-endurance-/8149626.html?withmediaplayer=1
+</div>
+
+## FarsiVOA — post 217656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اروپا در دو مسیر؛ از اعزام ناوهای ایتالیا و بریتانیا به تنگه هرمز تا ابتکار دیپلماتیک فرانسه
+</div>
+
+## FarsiVOA — post 217655
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217655_1778703671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علم صالح در برنامه تفسیر خبر: جنگ باعث شد جمهوری اسلامی نفت خود را با قیمت ۱۰۳ دلار بفروشد
+</div>
+
+## FarsiVOA — post 217654
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217654_1778703672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی عربشاهی در برنامه تفسیر خبر: علی خامنه‌ای با کلمه توسعه مشکل داشت
+</div>
+
+## FarsiVOA — post 217653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعدام احسان افراشته، زندانی سیاسی، توسط جمهوری اسلامی؛ گفت‌وگو با حسین احمدی‌نیاز
+</div>
+
+## FarsiVOA — post 217652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تشدید فضای امنیتی در بند زنان زندان اوین؛ محرومیت شماری از زندانیان سیاسی از حق تماس و ملاقات
+
+◾️ در‌پی تشدید فضای امنیتی در بند زنان زندان اوین، هشت زندانی سیاسی زن، به بهانه حضور در «برنامه‌های اعتراضی»، از حق تماس و ملاقات با خانواده و وکلای خود محروم شدند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/evin-prison-women-prisoners-political-prisoners-iran-deprivation/8149620.html
+</div>
+
+## FarsiVOA — post 217651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر سلطانی در برنامه تفسیر خبر: ما دوباره نیاز به ملی کردن نفت ایران داریم
+</div>
+
+## FarsiVOA — post 217650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکان خسروپور، پژوهشگر سیاست‌گذاری اینترنت، می‌گوید بر اساس سند راهبردی جمهوری اسلامی، مدیریت اینترنت اساساً خارج از کنترل دولت‌ها است و ایجاد «ستاد ویژه» به ریاست محمدرضا عارف، معاون مسعود پزشکیان، صرفا جنبه نمایشی دارد.
+</div>
+
+## FarsiVOA — post 217649
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217649_1778703673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تصاویری از هدف‌گیری نیروها و مواضع حزب‌الله در جنوب لبنان منتشر کرده است.
+
+این ارتش اعلام کرد از ابتدای درگیری‌ها، «بیش از ۴۰۰ تروریست از جمله اعضای یگان «رضوان» را به هلاکت رسانده و بیش از ۱۰۰۰ سلاح» متعلق به حزب‌الله را شناسایی کرده‌اند.
+
+بنابر بیانیه ارتش اسرائیل نیروهای واحد جمع‌آوری اطلاعات «شَحَف» (۸۶۹) بیش از ۱۲۰ تروریست را شناسایی و حذف کرده و ده‌ها زیرساخت تروریستی، از جمله مقرهای سازمان تروریستی حزب‌الله را نابود کرده‌اند.
+
+این ویدیو بی‌صدا است.
+</div>
+
+## DW_Farsi — post 124671
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124671_1778703675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 نتانیاهو در جریان جنگ ایران به‌طور محرمانه به امارات سفر کرده بود
+
+دفتر نخست‌وزیر اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ ایران به‌طور محرمانه به امارات سفر کرده و با محمد بن زاید، رئیس امارات، دیدار داشته است.
+
+دفتر نتانیاهو گفت این سفر به "یک دستاورد تاریخی" در روابط دو طرف منجر شده است. این نخستین تأیید رسمی از سفر محرمانه نتانیاهو به امارات در طول جنگ اخیر است.
+
+این اعلام پس از گزارش‌هایی منتشر شد که می‌گفتند دیوید بارنیا، رئیس موساد، نیز دست‌کم دو بار در ماه‌های مارس و آوریل به امارات سفر کرده تا درباره جنگ با ایران هماهنگی کند. این رفت‌وآمدها به‌عنوان نشانه‌ای از تعمیق همکاری اطلاعاتی و امنیتی میان ابوظبی و تل‌آویو ارزیابی شده است.
+
+هم‌زمان، مایک هاکبی، سفیر آمریکا در اسرائیل، تأیید کرد اسرائیل در جریان جنگ، سامانه "گنبد آهنین" و نیروهایی برای راه‌اندازی آن به امارات فرستاده است. او این اقدام را یکی از نمونه‌های ملموس سود امارات از توافق ابراهیم توصیف کرد. گزارش‌های جداگانه نیز می‌گویند این همکاری بخشی از پاسخ مشترک به حملات موشکی و پهپادی ایران بوده است.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124670
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124670_1778703676.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 ایران مدعی "حمله غیرقانونی" کویت به قایق ایرانی شد
+
+وزیر خارجه جمهوری اسلامی اعلام کرد کویت به‌طور "غیرقانونی" یک قایق ایرانی را در خلیج فارس هدف قرار داده و چهار ایرانی را بازداشت کرده است. عباس عراقچی گفت که جمهوری اسلامی خواهان آزادی فوری این افراد است و "حق پاسخ" را برای خود محفوظ می‌داند.
+
+در مقابل، مقام‌های کویتی گفته‌اند چهار فرد بازداشت‌شده به سپاه پاسداران وابسته بوده‌اند و تلاش داشته‌اند از راه دریا وارد کویت شوند.
+
+روایت حکومت ایران این است که این افراد "در یک گشت دریایی عادی حضور داشتند و به‌دلیل اختلال در سامانه ناوبری، ناخواسته وارد آب‌های کویت شده‌اند". مقام‌های جمهوری اسلامی اتهام طراحی اقدام خصمانه را رد کرده‌اند و می‌گویند کویت در حال سیاسی کردن ماجراست.
+
+در مقابل، خبرگزاری رسمی کویت و وزارت کشور این کشور گفته‌اند این چهار نفر در بازجویی، وابستگی خود به سپاه پاسداران را پذیرفته‌اند و مأموریت داشته‌اند به جزیره بوبیان نفوذ کنند. مقام‌های کویتی می‌گویند در درگیری با این افراد، یک نیروی امنیتی کویت زخمی شده است.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124669
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_124669_1778703677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 اینستاگرام رمزگذاری پیام‌های خصوصی را متوقف کرد
+
+پیام‌های خصوصی اینستاگرام دیگر به‌صورت سرتاسری رمزگذاری نمی‌شوند. این یعنی شرکت "متا" از نظر فنی می‌تواند به محتوای پیام‌های کاربران دسترسی داشته باشد. اما این تغییر چه پیامدهایی برای میلیون‌ها کاربر خواهد داشت؟
+#dwdigital
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124668
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124668_1778703679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 لبنان از ایران به سازمان ملل شکایت کرد
+
+العربیه گزارش داد لبنان در نامه‌ای رسمی که میان اعضای شورای امنیت و مجمع عمومی سازمان ملل توزیع شده، حکومت ایران را به "نقض عرف دیپلماتیک، دخالت در امور داخلی لبنان و کشاندن این کشور به جنگ" متهم کرده است.
+
+در این نامه، تهران همچنین به فعالیت‌های بدون مجوز در خاک لبنان از طریق سپاه پاسداران متهم شده است. هم‌زمان، رسانه‌های نزدیک به جمهوری اسلامی پیام نعیم قاسم را منتشر کرده‌اند که در آن، دبیرکل حزب‌الله از حمایت مستمر جمهوری اسلامی، به‌ویژه از مسیر سپاه پاسداران و نیروی قدس، قدردانی کرده است.
+
+بر اساس این گزارش، شکایت لبنان در شرایطی مطرح شده که تنش میان دولت لبنان و حزب‌الله پس از ماه‌ها درگیری با اسرائیل افزایش یافته است.
+
+در نقطه مقابل، به گزارش تسنیم وابسته به سپاه پاسداران، نعیم قاسم در پیامی از "حمایت خالصانه و مستمر" جمهوری اسلامی از حزب‌الله قدردانی کرده است. انتشار این پیام در همین مقطع، شکاف میان موضع رسمی دولت لبنان و موضع حزب‌الله را برجسته‌تر کرده است.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124667
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_124667_1778703680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 صد روز در انزوا؛ آزمایش انسان برای سفر به مریخ
+
+شش داوطلب در پروژه "سولیس ۱۰۰" صد روز را در انزوای کامل سپری می‌کنند تا دانشمندان تاثیرات روانی و جسمی سفرهای طولانی فضایی را بررسی کنند؛ آزمایشی که می‌تواند به آمادگی بشر برای ماموریت‌های آینده به مریخ کمک کند.
+#dwscience #dwhealth
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## Persian_Trend_Official — post 14073
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14073" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 5.1 مگابایت
+
+اتاق جنگ چهارشنبه ۲۳ اردیبهشت | جمهوری اسلامی ناو آمریکایی را تهدید به حمله کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14072
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14072_1778703683.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چت جی پی تی وارد پرونده قتل شد!
+
+💢رسانه‌های کره جنوبی گزارش دادن زنی متهم شده قبل از مسموم کردن چند نفر، از ChatGPT درباره ترکیب الکل و قرص خواب‌آور سؤال کرده
+
+💢طبق گزارش‌ها، این زن پرسیده بوده:
+اگه الکل و داروی خواب‌آور باهم مصرف بشن چی میشه؟
+چه دوزی خطرناکه؟
+و آیا ممکنه باعث مرگ بشه؟
+پلیس میگه بعد از همین جستجوها، به سه مرد نوشیدنی آلوده داده شده که دو نفرشون جونشونو از دست دادن 💀
+
+💢حالا نکته عجیب‌تر:
+دادگاه از گفتگوهای ChatGPT به‌عنوان مدرک برای اثبات «نیت قتل» استفاده کرده!
+
+💢وکیل پرونده گفته این شاید یکی از اولین پرونده‌هاییه که چت‌های AI به‌عنوان شاهد مستقیم تو پرونده قتل پذیرفته میشن..
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157153
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157153_1778703684.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جی‌دی ونس، معاون رئیس‌جمهور آمریکا، اعلام کرد که واشینگتن معتقد است در مذاکرات با ایران «پیشرفت» حاصل شده، اما هنوز مشخص نیست این پیشرفت برای عبور از خط قرمز دونالد ترامپ کافی باشد یا نه.
+
+🔸آقای ونس روز چهارشنبه در کاخ سفید به خبرنگاران گفت صبح همان روز با جرد کوشنر و استیو ویتکاف درباره ایران گفت‌وگو کرده و همچنین با مقام‌های عرب در تماس بوده است. او افزود: «سوال اصلی این است که آیا این پیشرفت به اندازه‌ای هست که خط قرمز رئیس‌جمهور را تأمین کند یا نه.»
+
+🔸به گفته معاون رئیس‌جمهور آمریکا، خط قرمز ترامپ این است که ایالات متحده مطمئن شود «سازوکارهای کافی» ایجاد شده تا ایران هرگز به سلاح هسته‌ای دست پیدا نکند.
+
+🔸اظهارات ونس در حالی مطرح می‌شود که ترامپ پیش‌تر پیشنهاد تازه ایران در مذاکرات را «غیرقابل قبول» توصیف کرده بود.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸قوه قضائیه جمهوری اسلامی شامگاه چهارشنبه ۲۳ اردیبهشت اعلام کرد که محمد عباسی، یکی از بازداشت‌شدگان اعتراضات دی‌ماه سال گذشته به اتهام قتل یک مأمور امنیتی اعدام شده است. 🔸خبرگزاری میزان، وابسته به این قوه، گفته است که او بعد از تأیید حکم توسط دیوان‌عالی کشور…
+</div>
+
+## RadioFarda — post 157151
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157151_1778703685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸قوه قضائیه جمهوری اسلامی شامگاه چهارشنبه ۲۳ اردیبهشت اعلام کرد که محمد عباسی، یکی از بازداشت‌شدگان اعتراضات دی‌ماه سال گذشته به اتهام قتل یک مأمور امنیتی اعدام شده است.
+
+🔸خبرگزاری میزان، وابسته به این قوه، گفته است که او بعد از تأیید حکم توسط دیوان‌عالی کشور و با توجه به «تقاضای اولیا‌ء دم»، «قصاص» شد.
+
+🔸ساعتی پیش‌تر، پایگاه خبری هرانا که اخبار حقوق بشر در ایران را از آمریکا پوشش می‌دهد، خبر داد که آقای عباسی بامداد چهارشنبه در زندان قزلحصار اعدام شده است.
+
+🔸هرانا به نقل از یک منبع نزدیک به خانواده این زندانی نوشت که مسئولان زندان قزلحصار از خانواده محمد عباسی خواستند که برای ملاقات با او به زندان مراجعه کنند، «اما پس از حضور خانواده در زندان، این امکان از نزدیکان او سلب شد. پس از خروج خانواده عباسی از زندان، آنها در تماسی تلفنی از اجرای حکم اعدام محمد عباسی مطلع شدند.»
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«جنگنده‌های عربستان سعودی در طول جنگ ایران، اهداف مرتبط با شبه‌نظامیان شیعه تحت حمایت تهران در عراق را بمباران کردند». این موضوع را چند منبع آگاه به رویترز گفته‌اند. 🔸به گفتۀ‌ این منابع، این حملات بخشی از «یک الگوی گسترده‌تر واکنش‌های نظامی در گوشه‌وکنار…
+</div>
+
+## RadioFarda — post 157149
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157149_1778703685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«جنگنده‌های عربستان سعودی در طول جنگ ایران، اهداف مرتبط با شبه‌نظامیان شیعه تحت حمایت تهران در عراق را بمباران کردند». این موضوع را چند منبع آگاه به رویترز گفته‌اند.
+
+🔸به گفتۀ‌ این منابع، این حملات بخشی از «یک الگوی گسترده‌تر واکنش‌های نظامی در گوشه‌وکنار حوزۀ خلیج فارس است که در طول جنگ آمریکا و اسرائیل با ایران آغاز شد، اما تا حد زیادی پنهان ماند».
+
+🔸یک مقام غربی که خواسته هویتش محفوظ بماند، به رویترز گفته که حملات عربستان توسط جت‌های جنگنده به اهداف شبه‌نظامی مرتبط با ایران در نزدیکی مرز شمالی این کشور با عراق انجام شد. به گفتۀ این مقام غربی برخی از حملات، تقریباً همزمان با شروع آتش‌بس بین ایالات متحده و ایران انجام شده است.
+
+🔸این مقام غربی و یک منبع عراقی گفته‌اند که جنگنده‌های عربستان مکان‌هایی را هدف قرار داده اند که مبداء حملات پهپادی و موشکی به عربستان سعودی و سایر کشورهای خلیج فارس بوده‌اند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20088
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20088_1778703686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس جمهور ترامپ آماده است عملیات پتک را علیه رژیم تروریستی ایران آغاز نماید.
+دولت او می‌گوید این اقدام، ساعت قانونی اختیارات جنگی را دوباره تنظیم می‌کند و ۶۰ روز فرصت عملیات رزمی پیش از دخالت کنگره می‌دهد.
+رژیم ایران دستپاچه در حال آماده‌سازی است، اما عملیات به احتمال زیاد بلا‌فاصله پس از سفر رسمی چین آغاز خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20087
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20087_1778703687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اکانت اسرائیل به فارسی:
+
+محمد عباسی و دخترش فاطمه در دی‌ماه دستگیر شدند.
+محمد را بدون ملاقات آخر، امروز صبح اعدام کردند.
+جمهوری اسلامی روی خون مردمش حکومت می‌کند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊روناک فرجی، روزنامه‌نگار
+
+جشنواره فیلم جشنواره فیلم کن امسال در حالی کار خود را در ساحل «کروآزت» آغاز کرده که برخلاف برخی دوره‌های اخیر، تمرکز اصلی آن دوباره به سینمای مؤلف و فیلم‌سازان شناخته‌شده اروپایی و آسیایی بازگشته است.
+
+هفتاد و نهمین دوره جشنواره بین‌المللی فیلم کن با حضور ستارگان سینما، فیلمسازان و اعضای هیئت داوران در جنوب فرانسه آغاز شد و فرش قرمز این رویداد میزبان چهره‌های سرشناس صنعت سینما بود.
+
+جشنواره این دوره شمار بی‌سابقه‌ای از شرکت‌کنندگان را جذب کرده است؛ افرادی که برای خرید آثار اغلب مستقل و کم‌هزینه رقابت می‌کنند، در حالی که استودیوهای بزرگ محتاط‌‌تر شده‌اند و کمتر ریسک می‌کنند.
+
+حدود ۱۶ هزار نفر از فعالان صنعت سینما برای حضور در بزرگ‌ترین بازار فیلم جهان ثبت‌نام کرده‌اند که از ۱۲ تا ۲۰ مه همزمان با جشنواره فیلم کن برگزار می‌شود.
+
+در مراسم افتتاحیه جشنواره، نخل طلای افتخاری برای یک عمر فعالیت هنری به پیتر جکسون، کارگردان فیلم‌های «ارباب حلقه‌ها» و «کینگ کونگ»، اهدا شد.
+
+برای خواندن ادامه مطلب به لینک زیر مراجعه کنید:
+
+https://bbc.in/4dhST0w
+📷Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 280957
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_280957_1778703688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز چهارشنبه۲۳ اردیبهشت ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 280956
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_280956_1778703690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری میزان، وابسته قوه قضائیه می‌گوید محمد عباسی از بازداشت شدگان اعتراضات دی ماه امروز(چهارشنبه ۲۳ اردیبهشت) اعدام شده است.
+
+قوه قضائیه جمهوری اسلامی او را به «کشتن» یک نظامی در جریان اعتراضات زمستان پارسال متهم کرد و می‌گوید خانواده فرد نظامی او را «قصاص کرده‌اند.»
+
+قوه قضائیه همچنین گفته است اجرای حکم اعدام با تایید و ابرام دیوان عالی ایران و به تقاضای اولیا انجام شده است.
+
+دیوان عالی ایران همچنین حکم ۲۵ سال حبس فاطمه عباسی، دختر آقای عباسی که در بند زنان زندان اوین زندانیست را تایید کرده است.
+
+این دومین مورد اعدامی است که قوه قضائیه امروز گزارش کرده است؛ احسان افرشته هم صبح امروز به اتهام «جاسوسی و همکاری اطلاعاتی به نفع اسرائیل» اعدام شد.
+
+با احتساب محمد عباسی، تاکنون ۳۲ زندانی پس از آغاز جنگ آمریکا و اسرائیل با ایران در این کشور اعدام شده‌اند.
+
+غلامحسین محسنی اژه‌ای، رئیس قوه قضائیه، بارها از دادستان‌ها خواسته است بدون اغماض و به‌ سرعت به پرونده کسانی که بعد از شروع جنگ و یا در اعتراضات دی ماه بازداشت شده‌اند رسیدگی کنند و احکامشان صادر و اجرا شود.
+
+📷Mizan
+@bbcpersian
+</div>
+
+## BBCPersian — post 280955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: از آغاز محاصره بنادر ایران به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور دادیم
+
+فرماندهی مرکزی ارتش آمریکا، سنتکام، در منطقه در اطلاعیه‌ای گفته است از زمان آغاز محاصره بنادر ایران به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده است.
+
+این نهاد در اطلاعیه‌ای اعلام کرده است: «چهار هفته پیش، سنتکام اجرای محاصره کشتی‌هایی را که به بنادر ایران وارد و از آنها خارج می‌شدند، آغاز کرد. تا امروز، نیروهای آمریکایی ۶۷ کشتی تجاری را مجبور به تغییر مسیر کردند، به ۱۵ کشتی حامل کمک‌های بشردوستانه اجازه عبور دادند و ۴ کشتی را برای اطمینان از رعایت محاصره، غیرفعال کردند.»
+
+در ادامه این اطلاعیه آمده است: «اوایل این هفته، نیروهای سنتکام پس از برقراری ارتباط رادیویی و شلیک گلوله‌های هشدار دهنده با سلاح‌های سبک، از بازگشت دو کشتی تجاری برای رعایت محاصره مطمئن شدند و به وضوح نشان دادند که اجرای قوانین ایالات متحده همچنان به طور کامل ادامه دارد.»
+
+@bbcpersian
+</div>
+
+## BBCPersian — post 280954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسرائیل: انبارهای تسلیحاتی و پرتابگرهای آماده شلیک حزب‌الله را هدف قرار دادیم
+
+ارتش اسرائیل در بیانیه‌ای گفته است «انبارهای تسلیحاتی، پرتابگرهای بارگذاری‌شده و آماده شلیک» و سایر زیرساخت‌های حزب‌الله لبنان را در چندین منطقه در جنوب لبنان هدف قرار داده است.
+
+این بیانیه می‌گوید: «در محل‌های شلیک که هدف قرار گرفتند، پرتابگرهای راکتی که به سمت منطقه فعالیت نیروهای ارتش اسرائیل و به سمت خاک اسرائیل هدف‌گیری شده بودند، منهدم شدند.»
+
+پیشتر وزارت بهداشت لبنان اعلام کرده بود که در حملات امروز اسرائیل ۱۲ نفر کشته شده‌اند، که اغلب آنها در جنوب بیروت بوده‌اند.
+
+این حملات با وجود آتش‌بس میان اسراییل و حزب‌الله انجام شده است.
+
+حملات جدید که مناطق مختلف جنوب لبنان را هدف قرار داد، در آستانه دور تازه‌ای از مذاکرات مستقیم میان لبنان و اسرائیل در واشنگتن با میانجیگری ایالات متحده انجام شد.
+
+حزب‌الله به‌شدت با این مذاکرات مخالف است.
+
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 389405
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389405_1778703691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج:
+معین قراره برای تیم ملی آهنگ بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دموکرات‌های سنای آمریکا برای هفتمین‌بار کیر خوردن،
+
+طرح محدود کردن اختیارات جنگی شیر خدا برای پایان دادن به جنگ با روافض هزار پدر رو برای بار هفتم به رأی گذاشتن و به تعداد هفت روز هفته کیر خوردن،
+
+اما خب جای نگرانی داشت اندکی چون در عین حال خیلی ناپلئونی رأی نیاورد،
+
+رأی ۴۹ موافق در مقابل ۵۰ مخالف.
+
+موافقان محدود کردن اختیارات شیر جنگجوی خدا تقریباً همه‌ی دموکرات‌ها به علاوه‌ی سه سناتور قرمدنگ جمهوری‌خواه به نام‌های: Rand Paul ، Susan Collins ، Lisa Murkowski ،
+که این اولین باری بود که سناتور قرمساق جمهوری‌خواه Murkowski به نفع طرح رأی داد.
+
+تنها سناتور شریف دموکرات John Fetterman از پنسیلوانیا بود که دوباره با جمهوری‌خواهان همراه شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش به کارکنان شعب لمیز ونک به پایین یاد بدین که وقتی یه آقای مسن میاد تو ازتون میپرسه «هویج بستنی» دارین نگین نه چیچیاتو میچیاتو و فولان داریم، عین آدم به بنده‌ خدای گرما زده توضیح بدید که چه محصول عادی و خنکی میتونه سفارش بده، چون این کار وظیفه منِ مشتری نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمه جنده ام، گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389399
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389399_1778703693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل تو زن داری؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
+گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389396
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389396_1778703693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389395
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389395_1778703693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389394
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389394_1778703693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما غلط کردی با صاحابت.
+از طرف مردم گه نخور.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 112937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو شهروند توسط نیروهای امنیتی در بوکان بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– استی محمدی، ۶۷ ساله و امیر یوسفی، شهروندان ساکن بوکان، توسط نیروهای امنیتی #بازداشت شدند.
+
+ادامه مطلب
+
+#استی_محمدی
+#امیر_یوسفی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 112936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای حکم اعدام ۵ زندانی در زندان‌های مختلف کشور
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– طی روزهای اخیر، حکم پنج زندانی که پیشتر در پرونده‌های جداگانه از بابت اتهامات مرتبط با جرائم مواد مخدر و قتل به #اعدام محکوم شده بودند، در زندان‌های کرمان، تبریز، بیرجند و گرگان به اجرا درآمد.
+
+ادامه مطلب
+
+#یونس_براهویی
+#ناصر_لنگرانی
+#امید_صادقی_سوری
+#حیدر_بامری
+#مهدی_بامری
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## manototv — post 105418
+
+<div align="center">
+  <a href="telegram/content/manototv_105418_1778703694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+</div>
+
+## manototv — post 105417
+
+<div align="center">
+  <a href="telegram/content/manototv_105417_1778703694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+میزان، خبرگزاری وابسته به قوه قضاییه جمهوری اسلامی از اعدام محمد عباسی، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴ خبر داد.
+
+میزان نوشت محمد عباسی سحرگاه روز چهارشنبه ۲۳ اردیبهشت در زندان قزلحصار اعدام شده است.
+
+بر اساس گزارش‌های منتشر شده مسئولان زندان قزلحصار از خانواده او برای ملاقات دعوت کرده بودند، اما پس از حضور آن‌ها، اجازه ملاقات داده نشد و خانواده پس از ترک زندان، تلفنی از اجرای حکم اعدام مطلع شدند.
+
+محمد عباسی در جریان اعتراضات دی‌ماه ۱۴۰۴ در ملارد بازداشت و سپس از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست ابوالقاسم صلواتی، به اتهام «محاربه» به اعدام محکوم شده بود.
+
+شعبه ۳۹ دیوان عالی کشور با رد فرجام‌خواهی، حکم اعدام محمد عباسی را تایید کرد. در همین پرونده، حکم ۲۵ سال زندان فاطمه عباسی، دختر او، نیز عینا تایید شده و او اکنون در بند زنان زندان اوین نگهداری می‌شود.
+
+بر اساس گزارش امتداد، ابهامات و پرسش‌های متعددی درباره روند رسیدگی و محتوای پرونده این دو متهم وجود داشته، اما وکلای مستقل به دلیل محرومیت از دسترسی به پرونده، امکان بررسی و پیگیری موثر آن را نداشته‌اند.
+</div>
+
+## manototv — post 105416
+
+<div align="center">
+  <a href="telegram/content/manototv_105416_1778703695.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+درد دلی با چاشنی کمی شوخی
+از واقعیتی تلخ از زندگی روزمره مردم
+</div>
+
+## manototv — post 105415
+
+<div align="center">
+  <a href="telegram/content/manototv_105415_1778703698.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در اظهاراتی درباره برنامه هسته‌ای جمهوری اسلامی گفت با موضع دونالد ترامپ موافق است که جمهوری اسلامی نباید به سلاح هسته‌ای دست پیدا کند.
+
+ونس گفت دولت آمریکا در حال حاضر درگیر یک روند «فعال دیپلماتیک» برای اطمینان از عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای است، اما در عین حال تاکید کرد ترامپ گزینه‌های مختلفی، از جمله گزینه‌های دیپلماتیک و نظامی، در اختیار دارد.
+
+معاون رئیس‌جمهوری آمریکا افزود اولویت اصلی ترامپ، حفاظت از مردم آمریکا و همچنین امنیت جهان در برابر تهدید ناشی از دستیابی جمهوری اسلامی به سلاح هسته‌ای است.
+</div>
+
+## manototv — post 105414
+
+<div align="center">
+  <a href="telegram/content/manototv_105414_1778703699.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واتس‌اپ قابلیت جدیدی به نام «حالت ناشناس» برای چت با هوش مصنوعی متا معرفی کرده که در آن، گفتگوها ذخیره یا قابل مشاهده نخواهند بود؛ حتی برای خود شرکت متا.
+واتس‌اپ می‌گوید این قابلیت برای گفتگو درباره موضوعات حساسی مثل سلامت، روابط و مسائل مالی طراحی شده است.
+با این حال، کارشناسان هشدار داده‌اند حذف کامل تاریخچه چت‌ها می‌تواند در صورت بروز آسیب یا سوءاستفاده، پیگیری مسئولیت را دشوار کند.
+</div>
+
+## alonews — post 119818
+
+<div align="center">
+  <a href="telegram/content/alonews_119818_1778703700.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه ایالات متحده: امروز، وزارت خارجه به‌طور عمومی پیشنهاد سخاوتمندانه ایالات متحده برای ارائه ۱۰۰ میلیون دلار کمک بشردوستانه مستقیم اضافی به مردم کوبا را که با هماهنگی کلیسای کاتولیک و سایر سازمان‌های بشردوستانه مستقل و قابل اعتماد توزیع خواهد شد، مجدداً اعلام می‌کند.
+
+
+🔴تصمیم با رژیم کوبا است که پیشنهاد کمک ما را بپذیرد یا از کمک‌های حیاتی نجات‌بخش زندگی خودداری کند و در نهایت در برابر مردم کوبا به دلیل ایستادگی در برابر کمک‌های حیاتی پاسخگو باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119817
+
+<div align="center">
+  <a href="telegram/content/alonews_119817_1778703700.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کوین وارش با رأی ۵۴ به ۴۵ سنا ایالات متحده به عنوان رئیس فدرال رزرو تأیید شد.
+
+
+🔴 جان فترمن تنها دموکراتی بود که از این تأیید حمایت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119816
+
+<div align="center">
+  <a href="telegram/content/alonews_119816_1778703702.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119815
+
+<div align="center">
+  <a href="telegram/content/alonews_119815_1778703702.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119814
+
+<div align="center">
+  <a href="telegram/content/alonews_119814_1778703703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل: امارات و اسرائیل به دنبال علنی‌تر کردن روابط خود هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119813
+
+<div align="center">
+  <a href="telegram/content/alonews_119813_1778703703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع عراقی از شنیده‌شدن صدای چندین انفجار در اربیل عراق خبر می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119812
+
+<div align="center">
+  <a href="telegram/content/alonews_119812_1778703703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه العربی: حزب لیکود درخواست انحلال کنست (پارلمان) اسرائیل و برگزاری انتخابات زودهنگام را ارائه داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119811
+
+<div align="center">
+  <a href="telegram/content/alonews_119811_1778703703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کیر استارمر ، نخست‌وزیر انگلیس در نخستین جلسه مجلس عوام پس از بازگشایی پارلمان، بار دیگر ورود شتاب‌زده به جنگ علیه ایران را خلاف منافع کشورش دانست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119810
+
+<div align="center">
+  <a href="telegram/content/alonews_119810_1778703703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 چین رئیس‌جمهور ترامپ را با حضور معاون رئیس‌جمهور رده‌بالا اما عمدتاً تشریفاتی، هان ژنگ، در پکن به گرمی پذیرایی کرد؛ انتخابی که طبق گزارش نیویورک تایمز، نشان‌دهنده مبادله نمادگرایی به جای ماهیت توسط پکن است.
+
+
+🔴 ترامپ سه‌شنبه شب با استقبال یک ارکستر نظامی، گارد افتخاری و صدها جوان در حال پرچم‌زنی وارد شد — نمایشی که برای تحت تأثیر قرار دادن رئیس‌جمهوری که به جایگاه حساس است طراحی شده، در حالی که چین زمان می‌خرد تا از بازگشت به تشدید اقتصادی اجتناب کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119809
+
+<div align="center">
+  <a href="telegram/content/alonews_119809_1778703704.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید در نظر دارد که رئیس‌جمهور ترامپ به مناسبت ۲۵۰امین سالگرد آمریکا، ۲۵۰ عفو صادر کند، احتمالاً در ۱۴ ژوئن یا ۴ ژوئیه، طبق گزارش WSJ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119808
+
+<div align="center">
+  <a href="telegram/content/alonews_119808_1778703704.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جنیفر جیکوبز خبرنگار سی‌بی‌اس:
+جی‌دی ونس معاون رئیس‌جمهور امریکا به من گفت که امروز صبح با جرد کوشنر و استیو ویتکاف درباره ایران گفتگو کرده، همچنین با مقامات عرب.
+
+
+🔴او مدعی شد که پیشرفت‌ در حال حصول است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119807
+
+<div align="center">
+  <a href="telegram/content/alonews_119807_1778703704.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه کوبا: حمله آمریکا منجر به حمام خون خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119806
+
+<div align="center">
+  <a href="telegram/content/alonews_119806_1778703704.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوپراپلیکیشن ایتا اعلام کرد امکان ارسال فایل تا حجم ۲۰ مگابایت مجدداً برای همه کاربران فراهم شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119805
+
+<div align="center">
+  <a href="telegram/content/alonews_119805_1778703705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای ونس، معاون رئیس‌جمهور آمریکا: ما درگیر یک فرایند دیپلماتیک فعال برای اطمینان از نداشتن سلاح هسته‌ای توسط ایران هستیم
+
+
+🔴رئیس‌جمهور گزینه‌های متعددی دیپلماتیک و نظامی پیش رو دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119804
+
+<div align="center">
+  <a href="telegram/content/alonews_119804_1778703705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا شما با موضع ترامپ موافقید که وضعیت مالی آمریکایی‌ها نباید در فرآیند تصمیم‌گیری درباره [ایران] مد نظر قرار گیرد؟
+
+
+🔴جی‌دی ونس: خب، فکر نمی‌کنم رئیس‌جمهور چنین چیزی گفته باشد. به نظرم این تحریف سخنان رئیس‌جمهور است.
+
+
+🔴اما ببینید، من با رئیس‌جمهور موافقم که ایران نباید سلاح هسته‌ای داشته باشد.
+
+
+🔴هدف اساسی این است که رئیس‌جمهور می‌خواهد جهان را ایمن کند، اما به طور خاص، مردم آمریکا را از داشتن سلاح هسته‌ای توسط ایران ایمن نگه دارد.
+
+
+🔴ما به وضعیت اقتصادی مردم آمریکا اهمیت می‌دهیم. ما همچنین چالش‌های متعدد دیگری هم داریم. طبیعتاً رئیس‌جمهور باید به طور همزمان با همه این چالش‌ها مواجه شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119803
+
+<div align="center">
+  <a href="telegram/content/alonews_119803_1778703705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای نیویورک تایمز: شرکت‌‌های چینی به دنبال فروش سلاح به ایران هستند و قصد دارند آنها را از طریق کشورهای دیگر ارسال کنند تا منبع خود را پنهان کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119802
+
+<div align="center">
+  <a href="telegram/content/alonews_119802_1778703705.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۲ اسرائیل به نقل از یک منبع نظامی گزارش داد: حزب‌الله از ابتدای جنگ ۴۵۰ پهپاد پرتاب کرده است که شامل ۱۲۰ پهپادی است که با استفاده از فیبر نوری عمل می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 21:56
 ---
 
