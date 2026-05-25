@@ -7,6 +7,1712 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:10
+---
+
+## VahidOOnLine — post 242189
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242189_1779745212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صابرین‌نیوز، کانال تلگرامی مشترک سپاه قدس و حشدالشعبی عراق، بامداد سه‌شنبه، پنجم خردادماه، از کشته‌شدن دو نیروی سپاه پاسداران در حمله جنگنده‌های دشمن به دو قایق در خلیج فارس خبر داد. همزمان، گزارش‌های رسیده از شنیده‌شدن صدای انفجارها در اصفهان و بابلسر خبر می‌دهد. پیش از این، تابناک بامداد سه‌شنبه، پنجم خردادماه، گزارش داد: «باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242188
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242188_1779745212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تابناک بامداد سه‌شنبه، پنجم خردادماه، گزارش داد: «باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت». پیش از این فارس، خبرگزاری وابسته به سپاه پاسداران از شنیده‌شدن چند انفجار در بندرعباس و حوالی سیریک و جاسک خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242187
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242187_1779745212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه، بامداد سه‌شنبه، پنجم خردادماه، درباره آخرین وضعیت مذاکرات هیات ایرانی به نقل از «یک منبع آگاه» گزارش داد: «موضوع آزادسازی دارایی بلوکه شده ایران در حال پیگیری است». براساس این گزارش، سفر محمدباقر قالیباف، رئیس مجلس شورای اسلامی، به قطر با همراهی عباس عراقچی، وزیر خارجه جمهوری اسلامی و رئیس کل بانک مرکزی، در جهت آزادسازی بخشی از پولهای بلوکه شده در مرحله اول اجرایی شدن یادداشت تفاهم احتمالی با واشنگتن است. تسنیم نوشت که چون جمهوری اسلامی به آمریکایی‌ها بی‌اعتماد است و می‌خواهد نتایج قطعی را حاصل و انتفاع ایجاد کند، اصرار دارد در این فرایند حتما بخشی از پول‌های مسدود شده آزاد شود. این «منبع مطلع» به تسنیم گفت که در این سفر «پیشرفت‌هایی حاصل شده و گام‌های رو به جلو برداشته شده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242186
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242186_1779745213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی‌که از کشته‌شدن علی خامنه‌ای در حمله مشترک آمریکا و اسرائیل، ۸۸ روز می‌گذرد، فارس، خبرگزاری وابسته به سپاه دوشنبه‌شب، چهارم خردادماه، به نقل از رئیس شورای هماهنگی تبلیغات اسلامی تهران گزارش داد: «هنوز زمان مشخصی برای تشییع رهبر شهید انقلاب تعیین نشده و مردم به شایعات توجه نکنند». رهبر دوم جمهوری اسلامی روز ۹ اسفند ۱۴۰۴ در تهران کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242185
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242185_1779745213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ فارس، خبرگزاری وابسته به سپاه، بامداد سه‌شنبه، پنجم خردادماه، از شنیده شدن چند انفجار در بندر عباس و حوالی سیریک و جاسک خبر داد و نوشت: «هنوز محل دقیق و منشا این صداها مشخص نیست».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242184
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242184_1779745213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با هشتادوهفتمین روز قطع اینترنت جهانی در ایران، خبرگزاری ایرنا دوشنبه‌شب گزارش داد که با توجه به تایید مصوبه بازگشت اینترنت به وضعیت قبل از دی‌ماه ۱۴۰۴ و ابلاغ آن به وزارت ارتباطات، «انتظار می‌رود این دستور فردا (سه‌شنبه، پنجم خردادماه) اجرایی شود و اینترنت بین‌الملل به‌زودی دسترسی مردم قرار بگیرد». براساس این گزارش، پیش از این، احسان چیت‌ساز، معاون سیاست گذاری و برنامه‌ریزی توسعه فاوا و اقتصاد دیجیتال وزارت ارتباطات با انتشار مطلبی در اکس از ابلاغ مصوبه بازگشایی اینترنت توسط پزشکیان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242183
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242183_1779745213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد محمدی گلپایگانی، رییس دفتر علی خامنه‌ای، در ویدیویی با اشاره به رهبر کشته‌شده جمهوری اسلامی گفت او مخالف تجمل‌گرایی بود و زندگی بسیار ساده‌ای داشت، به‌گونه‌ای که وسایل شخصی‌اش به اندازه بار یک وانت یا حتی کمتر بود.
+
+گلپایگانی افزود علی خامنه‌ای هدایایی را که از داخل و خارج کشور برایش ارسال می‌شد، به کمیته امداد و نهادهای دیگر می‌داد تا صرف کمک به فقرا شود و بهره شخصی او از این هدایا بسیار ناچیز بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی مجلس، دوشنبه‌شب، در برنامه «گفتگوی ویژه خبری» صداوسیما اعلام کرد که پهپادهای دشمن همچنان در مرزهای ایران در حال گشت زنی هستند. او گفت: «در طول روز گذشته و امروز، شاهد حضور پهپادهای دشمن بودیم که دیروز برخورد قاطعی صورت گرفت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242181
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242181_1779745214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه، بامداد سه‌شنبه، پنجم خردادماه از «شنیده‌شدن ۳ انفجار مهیب» در بندر عباس خبر داد. براساس این گزارش، معاون استاندار اعلام کرد منشا صدای انفجار در حال بررسی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242180
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242180_1779745214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242179
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242179_1779745215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، در برنامه «گفتگوی ویژه خبری» صداوسیما با ابراز بدبینی شدید نسبت به آینده مذاکرات با واشنگتن، دستیابی به یک توافق همه‌جانبه را دور از ذهن دانست و گفت: «ما در این شرایطی که داریم، بعید می‌دانیم که آمریکایی‌ها خلاصه وارد یک توافقی بشوند که این خواسته‌های جمهوری اسلامی را بپذیرند.» او با اشاره به روند طولانی‌مدت گفتگوها و پاسخ به پرسش مجری درباره میزان فاصله تا رسیدن به نتیجه نهایی صراحتا تأکید کرد: «من پذیرش پنج بند اول خواسته‌های ایران را بسیار بعید می‌دانم؛ بنابراین از نظر من، ما در حال حاضر در شرایطی قرار داریم که از دستیابی به هرگونه توافقی بسیار دور هستیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242178
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242178_1779745215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«یک منبع نظامی» در گفتگو با تسنیم، خبرگزاری وابسته به سپاه، روز دوشنبه مدعی شد که بررسی‌های فنی نیروهای مسلح نشان می‌دهد اسرائیل طی چند هفته گذشته، چندین حمله پهپادی را در قالب عملیات «پرچم دروغین» علیه امارات متحده عربی انجام داده است. این منبع ضمن اشاره به اینکه اقدامات انجام شده با هدف «تحریک» مقامات اماراتی صورت گرفته، گفت: «اسرائیل نشان داده است که صرفا منافع خود را در نظر دارد؛ به نوعی که هم در ارتباط با برخی از کشورهای حاشیه خلیج فارس آن‌ها را به ورطه‌ای خطرناک می‌کشاند و هم همزمان عملیات‌هایی را علیه آن‌ها انجام می‌دهد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242177
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242177_1779745215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی، کارشناس حکومتی و عضو هیات مذاکره‌کنندگان جمهوری اسلامی در مذاکرات جاری، در تلویزیون گفت قطر پذیرفته بخشی از دارایی‌های بلوکه‌شده حکومت را پیشاپیش تامین و بعد، از آمریکا دریافت کند. او دلیل این اقدام را درک قدرت جمهوری اسلامی و نتایج ایستادگی آن عنوان کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما : حمله شب گذشته دشمن آمریکایی-اسرائیلی به شناورها در جنوب جزیره لارک بر اساس اعلام منابع محلی شب گذشته جنگنده‌های آمریکایی-اسرائیلی چند شناور ایرانی را در جنوب جزیره لارک مورد هدف قرار دادند. طبق اعلام منابع محلی چند تن از هموطنانمان در این حملات…
+</div>
+
+## WithYashar — post 12483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما : حمله شب گذشته دشمن آمریکایی-اسرائیلی به شناورها در جنوب جزیره لارک
+
+بر اساس اعلام منابع محلی شب گذشته جنگنده‌های آمریکایی-اسرائیلی چند شناور ایرانی را در جنوب جزیره لارک مورد هدف قرار دادند.
+
+طبق اعلام منابع محلی چند تن از هموطنانمان در این حملات به شهادت رسیده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 12482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاآرتص: جرقه زده شد
+@withyashar
+</div>
+
+## WithYashar — post 12481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مشاهده چند موشک ۳ پا در آسمان یزد
+@withyashar
+</div>
+
+## WithYashar — post 12480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برابر گزارش‌ها، پرتاب موشک از قم.
+@withyashar
+</div>
+
+## WithYashar — post 12479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : فکر کنم ترور بابل درست باشه بخشی از خیابونو دو طرفشو بسته بودن کلا نه اجازه ی ورود میدادن نه خروج @withyashar
+</div>
+
+## WithYashar — post 12478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدل ایست : دو قایق تندرو نیروی دریایی سپاه در خلیج فارس هدف جنگنده‌های آمریکایی قرار گرفتن و چهار سرباز کشته شدن @withyashar
+</div>
+
+## WithYashar — post 12477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدل ایست : دو قایق تندرو نیروی دریایی سپاه در خلیج فارس هدف جنگنده‌های آمریکایی قرار گرفتن و چهار سرباز کشته شدن
+@withyashar
+</div>
+
+## WithYashar — post 12476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انقدر مسیج بی‌مورد ندید مگه به بچه آدم چند بار باید بگن !؟! دایرکت جای جوک و نظر شما نیست ! الان زمانه گزارش ها است فقط !
+</div>
+
+## WithYashar — post 12475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور هدفمند بابل (تایید نشده)
+@withyashar
+</div>
+
+## WithYashar — post 12474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تابناک : باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت
+@withyashar
+</div>
+
+## WithYashar — post 12473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زدننننن
+</div>
+
+## WithYashar — post 12472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 12471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر ها حاکی از شنیده شدن صدای جنگنده در دزفول و بهبهان.
+@withyashar
+</div>
+
+## WithYashar — post 12470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا اشتباه تایپی بوده مقتصات حمله رو بجا جنوب لبنان ، جنوب ایران نوشتن 😅🤣
+@withyashar
+</div>
+
+## WithYashar — post 12469
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12469_1779745217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین عکس‌ از بندرعباس ، سمت پایگاه هوایی
+@withyashar
+</div>
+
+## WithYashar — post 12468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌶️🫑
+</div>
+
+## WithYashar — post 12467
+
+
+
+
+## WithYashar — post 12466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: صداهای مشابهی در جزایر سیریک و جاسک شنیده شد.
+@withyashar
+</div>
+
+## WithYashar — post 12465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دلیل انفجارها در بندرعباس مشخص نیست.
+
+@withyashar
+</div>
+
+## mwarmonitor — post 9715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران به واشنگتن هشدار داده است که هرگونه حمله اسرائیل به بیروت یا حومه جنوبی آن، می‌تواند تلاش‌های جاری برای پایان دادن به جنگ را به‌طور جدی به خطر بیندازد و حتی کل روند دیپلماتیک را کاملاً مختل کند — الجزیره. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بنیامین نتانیاهو می‌گوید اسرائیل «در حال جنگ با حزب‌الله است» و تأکید کرد که اسرائیل فشار نظامی را کاهش نخواهد داد و او به نیروها دستور داده است «پدال را حتی محکم‌تر فشار دهند». 📌نتانیاهو گفت حزب‌الله در حال شلیک پهپادها، از جمله پهپادهای فیبر نوری است،…
+</div>
+
+## mwarmonitor — post 9713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥صدای انفجارهایی در خلیج فارس در نزدیکی مقابلِ سیریک و جاسک شنیده شد.
+</div>
+
+## FoxNewsTwitter — post 342249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Construction is officially underway at the White House for UFC Freedom Fights 250.
+
+Workers were seen assembling what appeared to be part of a lighting structure Monday as crews build out a temporary arena expected to hold roughly 5,000 invited guests.
+
+The June 14 card is believed to be the first professional sporting event ever held at the White House — and it lands on President Trump’s 80th birthday.
+</div>
+
+## pm_afshaa — post 91501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی وقته خبر جنگ نبوده کانالا جوگیر شدن یکم
+</div>
+
+## pm_afshaa — post 91500
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91500_1779745217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر: منشا صدای انفجار شرق بندرعباس بوده.
+
+اوضاع شهر، کاملا تحت کنترله و جای هیچگونه نگرانی برای مردم بندرعباس نیست. به شایعات منتشر شده در فضای مجازی توجه نکنید؛ هنوز منابع رسمی در این خصوص اظهار نظری نکردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91499
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91499_1779745218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو اصفهان هم گزارش پرواز پهباد داده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91498
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91498_1779745218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: در خلیج فارس حوالی سیریک و جاسک هم صداهای انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91497
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91497_1779745219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این وسط تسنیم گفته:
+در سفر قالیباف و عراقچی به قطر، پیشرفت‌هایی حاصل شده و گام‌های رو به جلو برداشته شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه شب خبر از توافقه یه شب جنگ
+</div>
+
+## pm_afshaa — post 91495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴میدل ایست: دو قایق تندرو نیروی دریایی سپاه در خلیج فارس هدف جنگنده‌های آمریکایی قرار گرفتن و 4 سرباز کشته شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91494
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91494_1779745220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون استاندار هرمزگان: منشا صدای انفجار در حال بررسی است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91493
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91493_1779745220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بندرعباس صدای 4 انفجار شنیده شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91492
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91492_1779745221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: احتمالا توافق بین آمریکا و جمهوری اسلامی سه‌شنبه اعلام میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91491
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91491_1779745221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بندرعباس صدای 4 انفجار شنیده شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91490
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91490_1779745222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بندرعباس صدای 4 انفجار شنیده شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91489
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91489_1779745222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کمیسیون امنیت ملی: بعید میدونم آمریکا با ایران توافق کنه و 5 بند ایران رو بپذیره؛ توافق ایران و آمریکا خیلی دور است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91488
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91488_1779745223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بندرعباس صدای 4 انفجار شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91487
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91487_1779745223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم به نقل از منبع نظامی:
+اسرائیل هفته های پیش حمله پهبادی به امارات کرده بندازه گردن ایران.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سلام بندرعباس امشب چهارم خرداد ساعت ۲۳:۴۰ صدای سه تا انفجار شدید پست سر هم اومد. خیلی نزدیک بود. انگاری از پایگاه شکاری بود.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 75714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بندرعباس
+پیام‌های دریافتی درباره صدای شنیده شدن صدای انفجار:
+
+بندرعباس سه بار صدای شدید اومد الان
+
+صدای بمب میاد.
+بندرعباس ساعت ۲۳:۴۰
+
+همین الان ساعت ۲۳:۴۰ صدای سه تا انفجار شدید توو بندرعباس اومد. نزدیک پایگاه شکاری یا همون فرودگاه بود به نظرم
+
+سلام وحید جان
+بندر عباس صدای آزاد سازی پول های بلوکه شده میاد
+
+بندرعباس ۲۳:۴۰ سه تا انفجار شدید
+
+حاجی۲۳/۴۰ سه تا انفجار شدید شرق بندرعباس
+دقیقا صدای انفجار ۴۰روز جنگ بود
+
+
+سلام همین الان بندرعباس صدای دوتا انفجار اومد
+
+بندرعباس حدود ۲۳:۴۰ دقیقه سمت فرودگاه صدای سه انفجار اومد.
+
+درود وحید جان
+بندر عباس ۱۱:۴۲ سه تا صدای زدن اومد
+
+بندرعباس، ساعت 11.40
+
+صدای شدید انفجار و لرزش
+
+سه تا صدای انفجار پشت هم شنیدیم بندرعباس
+
+بندرعباس 11:40 شب 4 خرداد صدای انفجار
+
+بندرعباس ۵ بار صدای انفجار
+ما سمت پایگاه هوایی هستیم نسبتا شدید بود
+
+پدافند سمت فرودگاه بندرعباس فعال شده ساعت ۲۳:۴۵
+
+آپدیت:
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87666
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87666_1779745224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایین صفحه نوشته شده فروش فیلترشکن جعلیه و کلاهبرداری
+
+خود تلگرام تبلیغ میکنه و مراقب باشید نخرید
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای تابناک: باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداهای انفجاری که در بندر عباس شنیده شده به احتمال زیاد مربوط به خنثی سازی مهمات عمل نکرده جنگ اخیر است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338991
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338991_1779745225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «علنی شدن رقم ۱۲ میلیارد دلاری پول‌های توقیف‌شده در قطر، بار دیگر این واقعیت را نشان داد که در مبادلات بانکی، فروش غیر رسمی نفت و دور زدن تحریم‌ها بخش زیادی از درآمدهای ملی حیف‌ومیل می‌شود و به‌دلیل پنهانی بودن معاملات، امکان سوءاستفاده و بالا کشیدن درآمدهای نفتی توسط فرماندهان سپاه و باندهای آنها وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338990
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338990_1779745227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد محمدی گلپایگانی، رییس دفتر علی خامنه‌ای، در ویدیویی با اشاره به رهبر کشته‌شده جمهوری اسلامی گفت او مخالف تجمل‌گرایی بود و زندگی بسیار ساده‌ای داشت، به‌گونه‌ای که وسایل شخصی‌اش به اندازه بار یک وانت یا حتی کمتر بود.
+
+گلپایگانی افزود علی خامنه‌ای هدایایی را که از داخل و خارج کشور برایش ارسال می‌شد، به کمیته امداد و نهادهای دیگر می‌داد تا صرف کمک به فقرا شود و بهره شخصی او از این هدایا بسیار ناچیز بود.
+https://iranintl.com/202605252326
+</div>
+
+## IranIntlTV — post 338989
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338989_1779745227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+https://iranintl.com/202605254215
+</div>
+
+## IranIntlTV — post 338988
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338988_1779745228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیویورک تایمز گزارش داده که فیفا از سوی یک گروه غیرانتفاعی در آمریکا به دلیل ممنوعیت پرچم شیر و خورشید در جام جهانی ۲۰۲۶، تهدید به اقدام حقوقی و قضایی شده است؛ این نهاد غیرانتفاعی خواستار آن شده که برگزارکننده جام جهانی ممنوعیت نمایش پرچم پیش از انقلاب اسلامی را لغو کند.
+
+🔹«مؤسسه صداهای آزادی» نامه‌ای حاوی نگرانی‌های خود را از طریق شاهرخ مختارزاده، مشاور حقوقی‌اش، برای فیفا ارسال کرده است.
+
+🔹مختارزاده به نشریه اتلتیک گفته است که بسته به پاسخ یا عدم پاسخ فیفا، «تصمیم برای آغاز روند رسمی دادرسی در دادگاه عالی ایالت کالیفرنیا یا دادگاه‌های فدرال در کالیفرنیا اتخاذ خواهد شد.»
+
+🔹مشاور حقوقی این گروه گفت که سه روز پس از ارسال نامه به فیفا، هنوز هیچ پاسخی دریافت نکرده‌اند: «در صورت هرگونه تلاش فیفا برای حذف پرچم شیر و خورشید، در حال آماده‌سازی برای آغاز اقدامات حقوقی مقتضی هستیم.»
+
+🔹هفته گذشته، اتلتیک به نقل از منابعی، گزارش داد که راهنمای رسمی فیفا برای ورزشگاه‌ها در جام جهانی، ممنوعیت این پرچم خواهد بود.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338987
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338987_1779745229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی، کارشناس حکومتی و عضو هیات مذاکره‌کنندگان جمهوری اسلامی در مذاکرات اسلام‌آباد، در تلویزیون گفت قطر پذیرفته بخشی از دارایی‌های بلوکه‌شده حکومت را پیشاپیش تامین و بعد، از آمریکا دریافت کند. او دلیل این اقدام را درک قدرت جمهوری اسلامی و نتایج ایستادگی آن عنوان کرد.
+</div>
+
+## Shin_Persian — post 6227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:37:03 UTC
+
+No explosions in Babolsar.
+No explosions in Isfahan.
+No explosions in Qom.
+Yes explosions &amp; AA activity in Bandar Abbas.
+No official statements, Yet.
+
+فارسی
+
+هیچ انفجاری در بابلسر رخ نداده است.
+هیچ انفجاری در اصفهان رخ نداده است.
+هیچ انفجاری در قم رخ نداده است.
+بله، انفجارها و فعالیت پدافند هوایی در بندرعباس گزارش شده است.
+هنوز هیچ بیانیه رسمی صادر نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6226
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6226_1779745230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Mon, 25 May 2026 21:12:23 UTC No, Tabnak News did not report anything about "Bandar Abbas airport being hit". But yes, the sound was heard from east of the city. #Hormogzan Province, #Iran ↩️ توییت نقل‌قول شده — برای…
+</div>
+
+## Shin_Persian — post 6225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:12:23 UTC
+
+No, Tabnak News did not report anything about "Bandar Abbas airport being hit".
+But yes, the sound was heard from east of the city.
+#Hormogzan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+خیر، خبرگزاری تابناک هیچ خبری مبنی بر «هدف قرار گرفتن فرودگاه بندرعباس» منتشر نکرده است.
+اما بله، صدا از شرق شهر شنیده شده است.
+#Hormogzan Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:12:23 UTC
+
+No, Tabnak News did not report anything about "Bandar Abbas airport being hit".
+But yes, the sound was heard from east of the city.
+#Hormogzan Province, #Iran
+
+فارسی
+
+خیر، خبرگزارى تابناک هیچ خبری مبنی بر «مورد اصابت قرار گرفتن فرودگاه بندرعباس» گزارش نکرده است.
+اما بله، صدا در شرق شهر شنیده شده است.
+#Hormogzan Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6223
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6223_1779745231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:10:26 UTC
+
+Source of this image is not know, it has no results in reverse image searches, and it's claimed to be from Bandar Abbas, Hormozgan Province, #Iran
+(Can't confirm)
+
+فارسی
+
+منبع این تصویر مشخص نیست، در جستجوی معکوس تصاویر هیچ نتیجه‌ای ندارد و ادعا شده است که مربوط به بندرعباس در استان هرمزگان، #Iran است.
+(قابل تأیید نیست)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6222
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6222_1779745231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 20:32:58 UTC
+
+State-owned Mehr News and IRGC's Fars News confirm the explosions in Bandar Abbas, Fars adds "At the same time, several blasts were heard from Sirik and Jask as well"
+Hormozgan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر و خبرگزاری فارس متعلق به سپاه پاسداران انقلاب اسلامی (سپاه)، وقوع انفجارها در بندرعباس را تأیید کردند. فارس افزود: «همزمان، چندین صدای انفجار از سیریک و جاسک نیز شنیده شده است.»
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 20:24:16 UTC
+
+2024Z
+AA activity over Bandar Abbas right now.
+Hormozgan Province, #Iran
+
+فارسی
+
+۲۰۲۴ زولو (۲۳:۵۴ به وقت تهران)
+فعالیت پدافند هوایی (AA) در حال حاضر برفراز بندرعباس.
+استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6220
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6220_1779745232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 20:17:30 UTC
+
+2012Z
+3 huge blasts in Bandar Abbas, Hormozgan Province, #Iran
+
+فارسی
+
+۲۰۱۲ زولو (۲۳:۴۲ به وقت تهران)
+۳ انفجار مهیب در بندرعباس، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روز دوشنبه ۴ خرداد جی دی ونس، معاون رئیس جمهوری آمریکا، به همراه پرزیدنت ترامپ و شماری از مقامات بلندپایه آمریکا در مراسم «روز یادبود» در آرامستان ملی آرلینگتون در نزدیکی واشنگتن شرکت کرد. این مراسم به طور زنده و با ترجمه همزمان پژواک کیومرثی از صدای آمریکا پخش شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روز دوشنبه ۴ خرداد پیت هگست، وزیر جنگ آمریکا، به همراه پرزیدنت ترامپ و شماری از مقامات بلندپایه آمریکا در مراسم «روز یادبود» در آرامستان ملی آرلینگتون در نزدیکی واشنگتن شرکت کرد. این مراسم به طور زنده و با ترجمه همزمان پژواک کیومرثی از صدای آمریکا پخش شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218652
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218652_1779745232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آیا فرانسه می‌خواهد اروپا را از وابستگی به چین نجات دهد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هزاران نفر در رژه روز یادبود در واشنگتن، پایتخت آمریکا، شرکت کردند.
+روز یادبود کشته‌شدگان نیروهای مسلح آمریکا در ایالات متحده برای گرامی‌داشت نظامیان کشته‌شده این کشور برگزار می‌شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218650
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218650_1779745233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های شبکه‌های اجتماعی از شنیده شدن صدای چند انفجار شدید در اواخر روز دوشنبه در بندرعباس حکایت دارد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهرداد درویش پور در برنامه تفسیر خبر: عقربه زمان به ضرر «جناح آخر الزمانی» خواهد چرخید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218648
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218648_1779745233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امین قضایی در برنامه تفسیر خبر: جمهوری اسلامی صرفا برای مذاکره، مذاکره می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218647
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218647_1779745234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا از جدال قدرت بین قالیباف و جلیلی - برنامه تفسیر خبر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218646
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218646_1779745235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا طالبی: سعید جلیلی به حاشیه رانده شده است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15013
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15013_1779745236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار از کرمانشاه و اصفهان
+</div>
+
+## Persian_Trend_Official — post 15010
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15010_1779745236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند در قم
+تاکنون ده ها موشک پرتاب شده
+</div>
+
+## Persian_Trend_Official — post 15009
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15009_1779745238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایالات متحده آمریکا مادر همه بمب ها را به خاورمیانه ارسال کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15008
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15008_1779745238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 آماده باش سراسری به یگان های آفندی سپاه و ارتش‼️
+</div>
+
+## Persian_Trend_Official — post 15007
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15007_1779745239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دود بلند شده از فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 15006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند. این خبر تایید یا تکذیب نمی‌شود . 👩‍💻@PhantomDirective 🆔@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15005
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15005_1779745239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹صدای انفجار در بابلسر
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15004_1779745240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند.
+این خبر تایید یا تکذیب نمی‌شود .
+
+👩‍💻@PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15003
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15003_1779745240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند بندر عباس
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15002
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15002_1779745241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر عجیب خبرگزاری تابناک
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15001
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15001_1779745241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره: ایران به آمریکا هشدار داده است که هرگونه حمله اسرائیل به بیروت یا حومه‌های جنوبی آن می‌تواند مذاکرات جاری برای پایان دادن به جنگ را به طور جدی به خطر بیندازد!
+</div>
+
+## Persian_Trend_Official — post 15000
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15000_1779745242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره:
+ایران به آمریکا هشدار داده است
+که هرگونه حمله اسرائیل به بیروت
+یا حومه‌های جنوبی آن می‌تواند
+مذاکرات جاری برای پایان دادن
+به جنگ را به طور جدی
+به خطر بیندازد!
+</div>
+
+## Persian_Trend_Official — post 14999
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14999" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 8.45 مگابایت
+
+اتاق جنگ دوشنبه 4 خرداد | حمله گسترده اسرائیل به لبنان نشانه توافق با تهران ؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سامانه‌های پدافند هوایی ایران در بندرعباس و بندر جاسک فعال شدند
+
+▪️ گزارش‌ها حاکی از فعال‌شدن پدافند هوایی ایران بر فراز Bandar Abbas و Bandar Jask است
+
+▪️ منابع غیررسمی از درگیری پدافند با اهداف هوایی خبر می‌دهند، اما هنوز ماهیت اهداف مشخص نیست
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14997
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14997_1779745243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرگزاری تسنیم به نقل از یک منبع نظامی گزارش می‌دهد که تحقیقات فنی نیروهای مسلح ایران نشان می‌دهد اسرائیل در چند هفته گذشته تحت پوشش عملیات پرچم دروغین، چندین حمله پهپادی علیه امارات انجام داده است، با هدف تحریک اماراتی‌ها.🇮🇷🇦🇪🇮🇱
+
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گمانه‌زنی‌ها درباره احتمال درگیری دریایی در خلیج فارس
+
+▪️ برخی منابع غیررسمی احتمال می‌دهند انفجارهای شنیده‌شده در نزدیکی جاسک و سیرک ناشی از درگیری دریایی با یک شناور بوده باشد
+▪️ گفته می‌شود این شناور احتمالاً از دستورات نیروی دریایی ایران تبعیت نکرده است
+▪️ تاکنون هیچ تأیید رسمی درباره وقوع درگیری دریایی یا هویت شناور منتشر نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14995
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14995_1779745244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شنیده‌شدن صدای انفجار در خلیج فارس مقابل سیرک و جاسک
+
+▪️ منابع محلی از شنیده‌شدن صدای چند انفجار در خلیج فارس مقابل مناطق سیرک و جاسک در جنوب Iran خبر می‌دهند
+▪️ تاکنون جزئیات رسمی درباره منشأ یا ماهیت این انفجارها منتشر نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14993
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14993_1779745244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 — گزارش‌های اولیه از چند انفجار شدید در نزدیکی فرودگاه بندرعباس، جنوب ایران، در خلیج فارس. خبر می‌دهد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه جا زده فوری ترور ‌‌‌هدفمند در بابل
+
+ی جا زده فوری تست بمب اتم در اصفهان
+
+یکی زده قایق های تندرو سپاهو‌ زدن ۴ نفرم کشته شدن
+
+یکی زده بمب اتم زدن رو تهران
+
+فازتون چیه نمیفهمم
+</div>
+
+## IranianMinds — post 20768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری مهر :
+
+شایعات فضای مجازی رو‌ باور نکنید منشا انفجار در بندرعباس هنوز مشخص نیست.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره صدا اومد بندرعباس؟
+</div>
+
+## IranianMinds — post 20765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمید رسایی نماینده حرومی مجلس : اینکه بخوان اینترنت بین الملل رو وصل کنن کاملا غیرقانونیه و‌ پزشکیان اصلا نمیتونه همچین کاریو انجام بده و تواناییش رو نداره ، و اینکار فقط برای حواس پرتیه @IranianMinds
+</div>
+
+## IranianMinds — post 20764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تابناک : باند فرودگاه هدف حمله ی موشکی قرار گرفته. @IranianMinds
+</div>
+
+## IranianMinds — post 20763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی زود خوشحال نشید بخواد جنگ شه با خبر کتلت شدن سپاهیا بیدار میشید فقط یا بازم‌ مثل دفعه ی قبله یا خودشون ی گوهی خوردن
+</div>
+
+## IranianMinds — post 20762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری تابناک : باند فرودگاه بندرعباس هدف حمله قرار گرفت. @IranianMinds
+</div>
+
+## IranianMinds — post 20761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری تابناک :
+
+باند فرودگاه بندرعباس هدف حمله قرار گرفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+از امروز عملیات «تیر آتش» رو برای نابودی کامل حزب الله در لبنان آغاز میکنیم!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20759
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20759_1779745245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره :
+
+احتمالا توافق ایران و آمریکا فردا اعلام بشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنیامین نتانیاهو :
+
+دستور دارم حملات به لبنان برای نابودی حزب الله تشدید و قوی تر شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقد اتفاقی شبی که قرار بود فرداش نتا وصل شه صدای انفجار اومد
+
+الان فردا میان میگن شرایط جنگیه‌ رفع محدودیت اینترنت فعلا کنسل
+</div>
+
+## IranianMinds — post 20756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل :
+
+داریم حزب الله رو پاره میکنیم امشب.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 در حال حاضر یک هواپیمای سوخت‌رسان KC-46A Pegasus متعلق به نیروی هوایی آمریکا بر فراز خلیج عمان در حال پرواز است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایسنا :
+
+دستور بازگشایی اینترنت احتمالا از فردا اجرا میشود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این صداهایی که میگن از بندرعباس میاد بعید بدونم خبری باشه چون اگر یادتون باشه ثانیه اولی که تهران رو زدن ۱۰۰ تا عکس و فیلم اومد
+بندرعباسم شهر کوچیکیه اگر زده باشن باید کلی عکس و فیلم میومد
+لابد فقط خنثی سازی بوده یا فعالیت پدافند
+</div>
+
+## BBCPersian — post 282041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از شنیده شدن صدای انفجارهایی در بندرعباس و حاشیه خلیج فارس
+
+چند نفر از مخاطبان کانال خبری وحید آنلاین که از بندرعباس پیغام فرستاده‌اند از شنیدن صدای دو انفجار و فعال شدن پدافندهای ضدهوایی در حدود ساعت ۱۱:۴۰ دوشنبه شب به وقت محلی خبر داده‌اند.
+
+خبرگزاری فارس هم با اشاره به چنین گزارش‌هایی نوشته «هنوز محل دقیق و منشأ این صداها مشخص نیست».
+
+به گزارش فارس گزارش‌های مشابهی هم از حوالی «سیریک و جاسک» در حاشیه خلیج فارس مخابره شده است.
+
+https://bbc.in/4tYLaei
+@BBCPersian
+</div>
+
+## BBCPersian — post 282040
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282040_1779745245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید ساعتی پس از آنکه بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد اسرائیل در حال جنگ با حزب‌الله است، موجی از حملات هوایی را در سراسر لبنان آغاز کرده است.
+
+از جمله مناطقی که هدف این حملات قرار گرفته است «مواضع حزب‌الله در دره بقاع در شرق لبنان» اعلام شده است.
+
+آقای نتانیاهو روز دوشنبه اعلام کرد که به ارتش دستور داده حملات خود در لبنان را تشدید کند تا حزب‌الله را «در هم بکوبد.»
+
+او این گروه را به هدف قرار دادن نیروهای اسرائیلی با حملات پهپادی متهم کرد.
+
+نخست‌وزیر اسرائیل گفت ارتش این کشور «ضربات سنگینی» به حزب‌الله وارد خواهد کرد.
+
+او افزود که اسرائیل «در حال جنگ» با این گروه است و در هفته‌های اخیر ۶۰۰ عضو حزب‌الله را کشته است.
+
+آقای نتانیاهو گفت: «دامنه حملات خود علیه حزب‌الله را افزایش خواهیم داد و متوقف نخواهیم شد.»
+
+حزب‌الله در چند هفته گذشته به حملات پهپادی خود به مواضع ارتش اسرائیل ادامه داده است.
+
+
+📷Reuters
+https://bbc.in/4tYLaei
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390191
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390191_1779745246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس صداوسیما و تایید صدای انفجار در بندرعباس
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390190
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390190_1779745246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون بندرعباس
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا الان شک داشتم جنگ شده یا نه که یادم اومد امروز عراقچی برای مذاکرات رفته بود قطر.
+
+قدرت مذاکره :))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390188
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390188_1779745247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: اوضاع شهر، کاملاً تحت کنترل است
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بابلسر صدای انفجار
+
+🔻اصفهان صدای انفجار
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ظاهرا حملات آمریکایی به قایق های سپاه کشته و زخمی زیادی دارد/
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+دقایقی پیش مردم تو بندرعباس و حوالی خلیج فارس صدای چند انفجار شنیدن؛ هنوز محل دقیق و منشأ این صداها مشخص نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390183
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390183_1779745248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا که دارن وصل میکنن اگه برنامه‌ای برای مصرف کانفیگ گروناتون ندارید میتونید از این چالش جدیدا ببینید
+
+کانفیگ‌ بزنیم به کص‌گاو کونمون نسوزه
+
+اعتباریم نیست خوب فکر کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرانه مصرف سالانه لبنیات در ایران: ۴۰ کیلوگرم
+میانگین کشورهای جهان: ۱۸۰ کیلوگرم
+کشورهای پیشرفته: ۳۶۰ کیلوگرم.
+
+نتیجه: پوکی‌استخوان، پوسیدگی‌دندان، بی‌خوابی و اضطراب، کوتاهی‌قد، سوءتغذیه و اختلال‌رشد.
+
+تنها رژیم چینجی که ترامپ انجام داد رژیم غذایی مردم بود
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390181
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390181_1779745249.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی و ظریف و پزشکیان اعدام کنید
+
+مردم ما کف ملت هستن 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهک تروریستی «الجیش الکانفیگ‌» مسئولیت حمله به بندرعباس رو گردن گرفت. [@AloTweet]
+</div>
+
+## alonews — post 122685
+
+<div align="center">
+  <a href="telegram/content/alonews_122685_1779745250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴اسرائیل: چهار نیروی سپاه در حملات آمریکا به قایق‌ها کشته شدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122684
+
+<div align="center">
+  <a href="telegram/content/alonews_122684_1779745251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق برخی گزارشات دو قایق تندرو سپاه هدف حمله جنگنده آمریکایی قرار گرفتن 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122683
+
+<div align="center">
+  <a href="telegram/content/alonews_122683_1779745251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون پرواز دو فروند هواپیما سوخترسان آمریکایی در آسمان خلیج فارس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122682
+
+<div align="center">
+  <a href="telegram/content/alonews_122682_1779745251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 122681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 122680
+
+<div align="center">
+  <a href="telegram/content/alonews_122680_1779745251.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوری/پرواز جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 122679
+
+<div align="center">
+  <a href="telegram/content/alonews_122679_1779745252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق برخی گزارشات دو قایق تندرو سپاه هدف حمله جنگنده آمریکایی قرار گرفتن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با پولایی که کانفیگ فروشا این مدت در آوردن بعید نیست موشک خریده باشن کار خودشون باشه
+
+[@AloTweet]
+</div>
+
+## alonews — post 122675
+
+<div align="center">
+  <a href="telegram/content/alonews_122675_1779745252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اولین فیلم های تایید نشده از پهباد در قشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122674
+
+<div align="center">
+  <a href="telegram/content/alonews_122674_1779745253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در حال حاضر یک فروند هواپیمای سوخت‌رسان KC-46A پگاسوس نیروی هوایی ایالات متحده بر فراز خلیج عمان در حال پرواز است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122672
+
+<div align="center">
+  <a href="telegram/content/alonews_122672_1779745253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تابناک:
+فرودگاه بندرعباس مورد اصابت موشک قرار گرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122671
+
+<div align="center">
+  <a href="telegram/content/alonews_122671_1779745253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دودی که گفته میشه از سمت پایگاه هواییِ بندرعباس بلند شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122670
+
+<div align="center">
+  <a href="telegram/content/alonews_122670_1779745253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: دلیل انفجار های بندرعباس مشخص نیست 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122669
+
+<div align="center">
+  <a href="telegram/content/alonews_122669_1779745253.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: همزمان در خلیج فارس حوالی سیریک و جاسک نیز صداهای مشابه شنیده شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122668
+
+<div align="center">
+  <a href="telegram/content/alonews_122668_1779745254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش آکسیوس، ویتکاف و کوشنر در روزهای آینده به اسرائیل سفر خواهند کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122667
+
+<div align="center">
+  <a href="telegram/content/alonews_122667_1779745254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / صدای ۴ انفجار در بندرعباس شنیده شده! 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122666
+
+<div align="center">
+  <a href="telegram/content/alonews_122666_1779745254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / صدای ۴ انفجار در بندرعباس شنیده شده!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 23:46
 ---
 
