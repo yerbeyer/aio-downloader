@@ -7,6 +7,376 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 03:27
+---
+
+## VahidOOnLine — post 242674
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242674_1780012643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز گفت آمریکا در مذاکرات با جمهوری اسلامی همچنان از اهرم فشار گسترده‌ای برخوردار است و اگر گفت‌وگوها به توافقی مطلوب برای ایالات متحده منجر نشود، اقدام نظامی همچنان یکی از گزینه‌ها خواهد بود.
+ترامپ در این مصاحبه که ویدیوی بخشی از آن روز پنج‌شنبه منتشر شد، گفت آستانه توسل دوباره به زور، توافقی است که «برای ما خوب نباشد». او افزود حملات پیشین آمریکا، از جمله با بمب‌افکن‌های بی-۲، جاه‌طلبی‌های هسته‌ای حکومت ایران را به عقب انداخته است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پنجشنبه شب، مراسم نوحه برای اعضای کشته شده خانواده علی خامنه‌ای، رهبر سابق جمهوری اسلامی در حالی برگزار شد که هیچ‌یک از پسران او در این مراسم حضور نداشتند. علی خامنه‌ای روز نهم اسفند به همراه دختر، عروس، داماد و نوه دختری‌اش در حمله هوایی آمریکا و اسرائیل کشته شد و گفته شد که پسرش مجتبی که چند روز بعد به عنوان سومین رهبر نظام معرفی شد، در این حمله دچار جراحت سنگین شده است. با این حال در سه ماه گذشته نه مجتبی خامنه‌ای دیده شده و یا تصویر و صدایی از او منتشر شده و نه پدرش دفن شده است. در مراسم پنجشنبه شب نیز مجتبی خامنه‌ای حضور نداشت و دیگر پسران خامنه‌ای، (مصطفی، مسعود و میثم) هم دیده نشدند. در این مراسم حداد عادل دیده می‌شود که پدر عروس کشته شده خامنه‌ای (همسر مجتبی) است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242672
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242672_1780012644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس سیستان و بلوچستان اعلام کرد افراد مسلح ناشناس عیسی عباسی، از کارکنان فرماندهی انتظامی ایرانشهر را در مسیر رفتن به محل کار هدف تیراندازی قرار دادند و عباسی درپی این حمله کشته شد. پلیس سیستان و بلوچستان گفت تلاش‌ها برای بازداشت عاملان این حمله ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342374
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342374_1780012644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JESSE WATTERS: "Who cares if they don't like the food? Get 'em out of here."
+
+"Cory Booker says this ICE facility shouldn't be in New Jersey. Why? Where should it be in?"
+
+"You got to keep them somewhere before you send them home. https://twitter.com/TheFive/status/2060112010327511267#m
+</div>
+
+## FoxNewsTwitter — post 342373
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342373_1780012647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A fire captain jumped into rushing floodwaters to save a baby deer being swept downstream in Indiana.
+
+The Madison Township Fire Department was responding to call about a person stuck in a car in a flooded roadway, but when they arrived, the person had been able to get themselves out without help. That's when rescuers heard a baby deer in trouble.
+
+Capt. Joe Sinclair went in the water to save it, with his crew helping to pull him and the deer back to safety. The deer was transported to a local wildlife rescue.
+</div>
+
+## FoxNewsTwitter — post 342372
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342372_1780012648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: WATCH: "I would urge the President not to take the deal... do what he does best... Get us a better deal."
+
+@HaroldFordJr warns a 60-day ceasefire won't solve the core threat, while @BretBaier reports intel suggests Iran’s nuclear material is currently "under a bunch of rubble."
+</div>
+
+## pm_afshaa — post 91803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه عراق :ما عملیات هدف قرار دادن کویت توسط ایران با موشک‌ها و پهپادها رو محکوم میکنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339490
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339490_1780012650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس‌نیوز گفت آمریکا در مذاکرات با جمهوری اسلامی همچنان از اهرم فشار گسترده‌ای برخوردار است و اگر گفت‌وگوها به توافقی مطلوب برای ایالات متحده منجر نشود، اقدام نظامی همچنان یکی از گزینه‌ها خواهد بود.
+ترامپ در این مصاحبه که ویدیوی بخشی از آن روز پنج‌شنبه منتشر شد، گفت آستانه توسل دوباره به زور، توافقی است که «برای ما خوب نباشد». او افزود حملات پیشین آمریکا، از جمله با بمب‌افکن‌های بی-۲، جاه‌طلبی‌های هسته‌ای حکومت ایران را به عقب انداخته است.
+
+https://iranintl.com/202605281803
+</div>
+
+## IranIntlTV — post 339489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339489_1780012651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرضیه از کرج: پرستارم؛ زخمی‌ها را به خانهٔ من می‌آوردند، اما امکانات کافی نداشتم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339488
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339488_1780012652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار مردمی ایران‌اینترنشنال؛
+آنچه در شب‌های جنایت رشت اتفاق افتاد
+
+ایران‌اینترنشنال در کارزاری مردمی، به‌دنبال ثبت و مستندسازی حقیقت دربارهٔ کشتار دی‌ماه در رشت است. اگر شاهد عینی آن شب‌ها بوده‌اید یا از خانواده و نزدیکان کشته‌شدگان این شهر هستید، روایت و اطلاعات خود را از طریق چت‌بات اینتل‌مدیا با ما در میان بگذارید و در روشن شدن ابعاد این کشتار مشارکت کنید.
+
+کامبیز حسینی در گفت‌وگو با فرنوش فرجی به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339487
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339487_1780012654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فریال از تهران: تمام زندگی مان روی سه کلمه می چرخد، "جنگ آتش بس مذاکره"
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339486
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339486_1780012655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاسمین، خواهر جاویدنام امیرمحمد شاه‌کرمی از تهران: برادر ۱۴ ساله‌ام را کشتند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/F2EDr9JvjxU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339485
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339485_1780012656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس سیستان و بلوچستان اعلام کرد افراد مسلح ناشناس عیسی عباسی، از کارکنان فرماندهی انتظامی ایرانشهر را در مسیر رفتن به محل کار هدف تیراندازی قرار دادند و عباسی درپی این حمله کشته شد. پلیس سیستان و بلوچستان گفت تلاش‌ها برای بازداشت عاملان این حمله ادامه دارد.
+https://iranintl.com/202605282931
+</div>
+
+## FarsiVOA — post 218945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت دادگستری آمریکا علیه تبعه عراقی-ایرانی عضو کتائب‌الحزب‌الله کیفرخواست صادر کرد؛ السعدی به توطئه برای بمب‌گذاری متهم است
+
+▪️وزارت دادگستری آمریکا روز پنج‌شنبه ۷ خرداد علیه یک شهروند دو تابعیتی عراقی-ایرانی به نام محمدباقر سعد داوود السعدی، کیفرخواست صادر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154996.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | وزیر خزانه‌داری آمریکا: عمان اطمینان داد برنامه‌ای برای گرفتن عوارض در تنگه هرمز ندارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ردپای نفت ایران در سوئیس؛ شبکه دور زدن تحریم‌ها و پولشویی برای سپاه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218941
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218941_1780012657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بحران سلامت در ایران و افزایش شدید هزینه‌های درمانی؛ گفت‌وگو با دکتر رضا سعیدی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15213
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15213_1780012657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚔️
+⚔️لحظه نابودی پایگاه هوایی بندرعباس توسط بمب‌های فوق سنگین 2.2 تنی GBU-72 که توسط بمب افکن استراتژیک سنگین B-1B نیروی هوایی آمریکا در این حمله استفاده شد.
+💥
+💥
+
+
+
+👨‍💻:Phantom
+
+
+🛰
+🛰@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15212
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15212_1780012658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰
+📰یک مقام آمریکایی ادعای ایران درباره سرنگون کردن یک هواگرد آمریکایی در استان بوشهر را رد کرد. به گزارش رویترز، این مقام که از فاش شدن هویتش خودداری کرد، تأکید نمود که هیچ هواگرد آمریکایی در آن منطقه مورد اصابت قرار نگرفته است. پیش از این، رسانه‌های دولتی…
+</div>
+
+## Persian_Trend_Official — post 15211
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15211_1780012659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد. همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## IranianMinds — post 20989
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20989_1780012659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو‌ روز روشن تو صداوسیما دنیارو تهدید به عملیات های تروریستی میکنن
+
+خوش چشم کارشناس صداوسیما :
+
+دیگه دوران بمب های هسته ای گذشته اینکارارو راحت میتونن بفهمن کار کی بوده ، الان تایم جنگ های میکروبی و بیولوژیکیه کسیم نمیفهمه کار کی بوده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20988
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20988_1780012660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اگر همین الان توی سایت #وینرو عضو بشی 
+🤩
+🤩
+🤩 هزار تومان شارژ رایگان میگیری
+❕
+
+
+✅ من خودم عضو شدم بدون واریز ۵۰۰ تومان گرفتم باهاش فوتبال پیش بینی کردم پولم شد ۲ میلیون 
+❕
+
+
+💚خیلی راحت هم برداشت کردم کل پولم رو 
+💵
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+🔴این فرصت محدود رو از دست ندید:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان a7
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 20987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMindsGroup
+
+ایدی گروه کامنتا ( تو کامنتا خیلی درخواست داده بودید )
+</div>
+
+## IranianMinds — post 20985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تخم‌ حرومارو خب چرا تو برنامه ای که اربابات فیلتر کردن میپلکی پس؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم : یه پهپاد آمریکایی رو تو بوشهر زدیم بمولا. @IranianMinds
+</div>
+
+## BBCPersian — post 282287
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282287_1780012660.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+مقام‌های آمریکایی اعلام کردند که یک راننده کامیون سابق به دلیل نقش‌اش در توطئه برای قتل مسیح علی‌نژاد، فعال سیاسی ایرانی-آمریکایی، به ۱۰ سال زندان محکوم شد.
+
+وزارت خارجه ایالات متحده اعلام کرد که جاناتان لودهولت، ۳۷ ساله، به پولشویی و توطئه‌‌ای که مسیح علی‌نژاد را در خانه‌اش در بروکلین در سال ۲۰۲۴ هدف قرار می‌داد، اعتراف کرده است.
+
+اف‌بی‌آی پیش از انجام هرگونه سوءقصد علیه خانم علی‌نژاد، این توطئه را خنثی کرد.
+
+مسیح علی‌نژاد به بی‌بی‌سی گفت که از مقامات سپاسگزار است، اما احساس آرامش نمی‌کند.
+
+او گفت: «آرامش به معنای تمام شدن است. تمام نشده است. این سومین باری است که ایران سعی کرده است مرا در خاک آمریکا بکشد.»
+
+خانم علی‌نژاد گفت: «هر بار که شکست می‌خورند، با چیز جدیدی برمی‌گردند.»
+
+مقام‌های آمریکایی می‌گویند در حالی که این توطئه از ایران هدایت می‌شد، قاتلان احتمالی شهروندان آمریکایی بودند که برای پول با کشتن خانم علی‌نژاد موافقت کردند.
+
+متن کامل این خبر را در سایت فارسی بی‌بی‌سی بخوانید.
+
+https://bbc.in/4wWMhOa
+📷 Roy Rochlin/Getty Images for ADL
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 02:25
 ---
 
