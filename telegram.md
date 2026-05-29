@@ -7,6 +7,3024 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 21:23
+---
+
+## VahidOOnLine — post 242805
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242805_1780077199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صداوسیمای جمهوری اسلامی اعلام کرد «متن ادعایی ترامپ یک‌طرفه» است و هنوز درباره هیچ‌کدام از بندهای آن توافقی نشده است.
+خبرگزاری صداوسیما افزود جمهوری اسلامی هنوز متن ۱۴بندی ادعایی رسانه‌ها را برای آمریکا ارسال نکرده است.
+
+خبرگزاری صداوسیما همچنین اعلام کرد ادعای ترامپ درباره مواد هسته‌ای ایران عقب‌نشینی آشکار از ادعاهای اولیه درباره انتقال این مواد به آمریکا است.
+
+پیش‌تر دونالد ترامپ اعلام کرد که برای اتخاذ تصمیم نهایی درباره ایران، در اتاق وضعیت کاخ سفید جلسه تشکیل داده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242804_1780077199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ مهدی خانعلی‌زاده، خبرنگار صداوسیما که برای پوشش مذاکرات اسلام‌آباد، به پاکستان سفر کرده بود، با انتشار پیامی در روایتگر اینستاگرام خود، متن تفاهم احتمالی میان تهران و واشنگتن را ناقض «بیانیه شورای امنیت ملی» که به تایید مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی نیز رسیده بود، دانست.
+
+خانعلی‌زاده نوشت: «در متن تفاهم احتمالی، هشت بند از ۱۰ بعد بیانیه شورای عالی امنیت ملی که به تایید رهبری رسیده، رعایت نشده و زیر پا گذاشته شده است.»
+
+او در ادامه به دو بند مربوط به آزادی دارایی‌های مسدودشده ایران و وضعیت حقوقی تنگه هرمز نیز پرداخت و با اشاره به تناقض در گفته‌های دونالد ترامپ با روایت مقام‌های جمهوری اسلامی، امکان اجرایی نشدن این تفاهم را «بسیار بالا» دانست.
+
+خانعلی‌زاده، مذاکراتی که با میانجی‌گری پاکستان پس از دیدار در اسلام‌آباد انجام شد را «پسااسلام‌آباد» خواند و نوشت که این مذاکرات «بر مبنای شروط رهبری» انجام نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242803
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242803_1780077200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه گفت که ما در این مرحله بر خاتمه جنگ متمرکز هستیم و در مورد جزئیات برنامه هسته‌ای مذاکره‌ای نداریم.
+سخنگوی وزارت خارجه جمهوری اسلامی افزود: «تاکنون تفاهمی با آمریکا نهایی نشده است.»
+
+او افزود: «آنچه آمریکایی‌ها تحت عنوان محاصره دریایی از آن نام می‌برند، از ابتدا یک اقدام غیرقانونی بود؛ هم نقض آتش‌بس بود و هم اخلال در آزادی دریانوردی بین‌المللی. ما باید ببینیم در عمل آیا واقعا به این حرفشان عمل خواهند کرد یا صرفا یک ادعای تبلیغاتی است.»
+
+او ادامه داد که با زبان «باید»، ۴۷ سال پیش خداحافظی کردیم، هیچ یک از طرف‌های غربی وقتی درباره جمهوری اسلامی صحبت می‌کنند، «نباید از باید» استفاده کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال با راه‌اندازی کارزار مردمی رشت در صدد است تا جاویدنامان کشته‌شده در اعتراضات دی‌ماه این شهر را شناسایی کند. اگر از شاهدان عینی کشتار بودید و یا عضوی از خانواده و نزدیکان‌تان در این قتل‌عام حکومتی هدف قرار گرفته، در بات تلگرامی اینتل‌مدیا که آدرس آن در تلگرام ایران‌اینترنشنال نوشته شده، پیام بدهید و اسناد، تصاویر و روایات خود را بفرستید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242801_1780077201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، روز جمعه هشتم خرداد، در گفتگو با صداوسیما اعلام کرد که تبادل پیام‌ها میان تهران و واشنگتن ادامه دارد. بقایی تاکید کرد که متن تفاهم‌نامه هنوز نهایی نشده است. بقایی همچنین با اشاره به گفته‌های ترامپ درباره بازگشایی تنگه هرمز و برقرار نشدن سازوکار اخذ عوارض، گفت تصمیمات درباره این آبراهه تنها از سوی ایران و عمان گرفته خواهد شد.
+
+سخنگوی وزارت خارجه، با تکرار مواضع جمهوری اسلامی بار دیگر تاکید کرد که در حال حاضر تمرکز بر پایان دادن به جنگ است و مذاکره‌ای درباره برنامه هسته‌ای در جریان نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242800
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242800_1780077201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش وال‌استریت ژورنال، امارات متحده عربی در روزهای ابتدایی جنگ و حتی تا یک روز پس از اعلام آتش‌بس، ده‌ها حمله هوایی در ایران انجام داده است.
+به گفته منابع آگاه، دامنه این حملات بسیار گسترده‌تر از چیزی بوده که پیش‌تر گزارش شده بود.
+
+بر اساس این گزارش، این موضوع نشان می‌دهد امارات متحده عربی در مقایسه با برخی کشورهای منطقه خلیج‌فارس، رویکردی تهاجمی‌تر و همسو با منافع راهبردی خود اتخاذ کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242799
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242799_1780077202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
+
+او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242798
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242798_1780077203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ در پی اعلام بخش‌هایی از توافق احتمالی میان تهران و واشنگتن از سوی دونالد ترامپ، آکسیوس به نقل از «مقام‌های آمریکایی» اعلام کرد که مقام‌های جمهوری اسلامی درباره سرنوشت اورانیوم با غنای بالا «تعهد کتبی» داده‌اند. با این‌حال این مقام‌ها تاکید کردند که آن‌چه مهم است مواردی است که در اتاق مذاکره و پس از شروع رسمی مذاکرات مورد توافق قرار بگیرد.
+
+ترامپ پیش‌تر در پیامی در شبکه اجتماعی تروث‌سوشال اعلام کرد که آمریکا با همکاری و هماهنگی جمهوری اسلامی، این مواد که زیر آوار تاسیسات هسته‌ای ایران قرار گرفته‌اند را خارج کرده و با نظارت سازمان انرژی اتمی، نابود خواهد کرد.
+
+در مقابل، خبرگزاری فارس، به نقل از «منابع آگاه»، این گفته را رد کرد و تاکید کرد که بندی درباره برنامه هسته‌ای در تفاهم‌نامه مورد بحث وجود ندارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242797
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242797_1780077203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور رهبر کشته‌شده جمهوری اسلامی گفت: «داغ رهبر شهید در دل مردم هرگز سرد نخواهد شد و رهبری در دل مردم جان و عمق گرفته بود و کسانی که او را دیده و درک کرده‌اند، امکان ندارد این داغ از دلشان برود.»
+
+او در خصوص مذاکرات با آمریکا افزود: «ما هیچ اطمینانی به آمریکایی‌ها نداریم، اما دیپلماسی نیز بخشی از جنگ است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242796
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242796_1780077204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گفته وزارت امور خارجه آمریکا، مارکو روبیو، وزیر امور خارجه و مشاور امنیت ملی دونالد ترامپ، روز جمعه، هشتم خرداد با اسحاق دار، وزیر امور خارجه و معاون نخست‌وزیر پاکستان، درباره جنگ با ایران گفتگو کرد. پاکستان یکی از میانجی‌های اصلی در مذاکرات میان ایالات متحده و جمهوری اسلامی برای دست‌یابی به یک توافق رسمی آتش‌بس موقت بوده است.
+
+تامی پیگات، سخنگوی وزارت امور خارجه آمریکا، در بیانیه‌ای درباره این دیدار که در واشنگتن برگزار شد، اعلام کرد: «وزیر امور خارجه از نقش سازنده‌ای که پاکستان در راستای تحقق چشم‌انداز رئیس‌جمهوری ترامپ برای صلح در خاورمیانه و همچنین تلاش‌های میانجی‌گرانه این کشور با ایران ایفا می‌کند، تشکر کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242795
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242795_1780077204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام ارشد جمهوری اسلامی گفت اظهارات دونالد ترامپ درباره ذخایر اورانیوم با غنای بالای ایران صحت ندارد.
+
+این مقام ارشد جمهوری اسلامی همچنین افزود تفاهم‌نامه احتمالی میان تهران و واشینگتن شامل هیچ‌گونه موضوع مرتبط با پرونده هسته‌ای نیست.
+
+این مقام ارشد جمهوری اسلامی گفت که میان تهران و واشینگتن یک تفاهم سیاسی حاصل شده، اما این توافق هنوز نهایی نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242794
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242794_1780077205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گفته رافائل گروسی، رئیس آژانس هسته‌ای سازمان ملل متحد، قزاقستان مایل است در صورت دستیابی به توافق میان واشنگتن و تهران، ذخیره اورانیوم غنی‌شده ایران را که در آستانه سطح تسلیحاتی قرار دارد، در خاک خود ذخیره کند.
+
+رافائل گروسی، رئیس آژانس بین‌المللی انرژی اتمی (IAEA) در گفتگو با روزنامه فایننشال تایمز اعلام کرد که قاسم جومارت توکایف، رئیس‌جمهور قزاقستان، این پیشنهاد را در جریان سفر این هفته او به آستانه مطرح کرده است.
+
+قزاقستان در حال حاضر میزبان یک «بانک بین‌المللی اورانیوم با غنای پایین» است که تحت نظارت‌های جهانی اداره می‌شود؛ هدف این بانک، تضمین تامین سوخت نیروگاه‌های کشورهای عضو آژانس و همچنین پیشگیری از گسترش سلاح‌های هسته‌ای است.
+
+گروسی با ابراز این باور که چنین ترتیبی می‌تواند مورد پذیرش ایران و آمریکا قرار گیرد، افزود: «ما مکانی را در اختیار داریم که این مواد [اورانیوم غنی‌شده ایران] می‌تواند به صورت ایمن در آنجا ذخیره شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242793
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242793_1780077205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت که تا این لحظه تفاهم نهایی بین جمهوری اسلامی و آمریکا صورت نگرفته و پست ترامپ در تروث سوشال در چارچوب الگوی همیشگی آن در اعلام نظرهای یکسویه و خود بزرگ‌بینانه است.
+
+تسنیم افزود: «اصرار ترامپ مبنی بر عدم پرداخت پول‌های بلوکه شده، صرفا سوءظن تهران نسبت به جدیت آمریکا را تشدید می‌کند.»
+
+رسانه سپاه نوشت که اظهارات دونالد ترامپ درباره برداشتن محاصره دریایی ایران را باید با تردید نگریست و البته اگر واقعا در عمل انجام شود، تازه به منزله توقف یکی از موارد نقض آتش‌بس است؛ زیرا از ابتدا نباید محاصره‌ای صورت می‌گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۸ خرداد:
+
+🔹از کاشان: واقعا وضعیت افتضاحه، اصلا نمی‌شه زندگی کرد، مدام منتظر یک اتفاقیم که این وضعیت تموم شه؛ داره بهترین سال‌های عمرمون این‌جوری می‌گذره، خیلی سخته.
+
+🔹هنوز که هنوزه واسه جاویدنامان اشک می‌ریزیم. وقتی خودم رو جای خانواده‌های این عزیزان می‌ذارم قلبم به درد میاد. نباید این خون‌ها پایمال بشه.
+
+🔹از لار پیام می‌دم، زندگی خیلی سخت شده، حقوق‌های کارمندها رو سر ماه نمی‌دن و همه چیز بیش از اندازه گرون شده.
+
+🔹چرا ما دهه‌ نودی‌ها باید در گرانی و آرزو به دل ماندن زندگی کنیم؟
+
+🔹از اول هم قرار نبود که آمریکا و اسرائیل رژیم رو برای ما تغییر بدن. این کار خودمونه. بازم هم دستشون درد نکنه. کی ما می‌تونستیم این همه مهره‌ کلیدی رو از سر راه انقلابمون برداریم. نیمه‌ی پر لیوان رو ببینید. کسی برای حکومت نمونده جز سروصدای چند ارزشی.
+
+🔹گفتن جریمه اقساط رو می‌بخشیم ولی الان دارن با چند برابر سود دیرکرد اقساط می‌گیرن.
+
+🔹برای یک شانه تخم‌مرغ باید یک روز کار کنی.
+
+🔹خریدهای عادی ماهانه هر دفعه گران‌تر از قبل می‌شه، نمی‌دونم دیگه تا کی می‌شه ادامه داد، اعتراض کنی می‌کشنت، سکوت کنی هم کم‌کم دیگه هیچی برای خوردن نداری.
+
+🔹من یک تئاتری‌ام. شرایط بچه‌های تئاتر خوب نیست. خیلی‌ها خرج بچه و اجاره خانه دارن. تا هر اتفاقی افتاد کرکره تئاتر رو کشیدن پایین. تنها شغلی هستیم در ایران که اتفاقا اصلا شغل محسوب نمی‌شیم. اگر کار نکنم هیچ‌کس نمیاد بگه کجایی. ۴۷ ساله که دیواری کوتاه‌تر از ما نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242791
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242791_1780077206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده با انتشار پیامی در شبکه اجتماعی تروث‌سوشال، شرایط مورد نظر ایالات متحده که به گفته او در متن توافق احتمالی با جمهوری اسلامی ذکر شده را فاش کرد. ترامپ تاکید کرد که ایران باید موافقت کند که هرگز سلاح هسته‌ای نداشته باشد و تنگه هرمز را بدون برقراری هرگونه سازوکار عوارض‌گیری باز کند؛ در مقابل، ایالات متحده نیز محاصره دریایی را لغو می‌کند.
+
+رئیس‌جمهوری آمریکا همچنین تاکید کرد که سرنوشت اورانیوم با غنای بالای ایران که در جریان حملات تابستان گذشته، زیر آوار تاسیسات هسته‌ای در اصفهان، فردو و نطنز باقی‌مانده‌اند نیز مشخص شده و توافق می‌شود که آمریکا با هماهنگی و همکاری جمهوری اسلامی، این مواد را خارج کرده و با نظارت سازمان بین‌المللی انرژی اتمی، نابود کند.
+
+این در حالی است که مقام‌های جمهوری اسلامی در هفته‌های اخیر تاکید کرده بودند که پرونده هسته‌ای در توافق کنونی مطرح نخواهد شد، بلکه بعد از نهایی شدن این توافق و پایان رسمی جنگ، گفتگوها در این‌باره ادامه خواهد یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242790
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242790_1780077207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن محمودی، رییس شورای هماهنگی تبلیغات اسلامی تهران گفت: «ستاد آماده برگزاری مراسمی باشکوه و ده‌ها میلیونی برای رهبر شهیدمان است، اما زمان قطعی این مراسم هنوز مشخص نیست و به محض مشخص شدن اعلام خواهد شد.»
+
+او ادامه داد: «موکب‌ها می‌توانند برای ثبت نام مراجعه کنند تا مراسم باشکوه برگزار شود.»
+
+علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در لحظات آغازین جنگ در ۹ اسفند ۱۴۰۴ کشته شد اما با گذشت حدود سه ماه، وضعیت جنازه و تشییع او هنوز مشخص نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن محمودی، رئیس شورای هماهنگی تبلیغات اسلامی تهران، در گفتگو با صداوسیما اعلام کرد ستاد ویژه‌ای برای آماده‌سازی برگزاری مراسم تشییع تشکیل شده و دستگاه‌های مختلف در حال برنامه‌ریزی و آمادگی برای برگزاری این مراسم هستند.
+او با اشاره به اینکه زمان دقیق تشییع هنوز مشخص نشده، گفت مجموعه‌های مختلف در حال فراهم‌سازی شرایط لازم هستند تا در زمان اعلام رسمی، مراسمی «باشکوه» برگزار شود. محمودی همچنین از موکب‌ها خواست برای ارائه خدمات در این مراسم، از هم‌اکنون در سامانه‌های تعیین‌شده ثبت‌نام کنند.
+به گفته او، با وجود نامشخص بودن زمان برگزاری، ستاد مربوطه به‌طور کامل فعال است و برنامه‌ریزی‌ها برای برگزاری مراسمی با حضور گسترده در حال انجام است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242788
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242788_1780077207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فارس، نزدیک به سپاه پاسداران، روز جمعه هشتم خرداد، در واکنش به پیام دونالد ترامپ که جزئیاتی درباره توافق احتمالی میان تهران و واشنگتن را مطرح کرده بود، به نقل از «منابع آگاه»، این پیام رئیس‌جمهوری آمریکا را «آمیخته‌ای از راست و دروغ» خواند.
+
+فارس به نقل از این منابع که هویت آن‌ها اعلام نشده، متن توافق را در قالب «تعهد در برابر تعهد» توصیف کرد و در حالی‌که ترامپ اعلام کرده بود که تصمیم نهایی خود را پس از جلسه در اتاق وضعیت کاخ سفید اتخاذ خواهد کرد، مدعی شد که جمهوری اسلامی هنوز تصمیم قطعی درباره توافق نگرفته و متن تدوین شده، «در مراحل نهایی تصویب» در ایران قرار دارد.
+
+این منابع گفته‌های ترامپ درباره بازگشایی تنگه هرمز بدون دریافت عوارض و نابودی اورانیوم با غنای بالا را رد کرد و گفت این موارد در متن توافق وجود ندارد. فارس هم‌چنین اعلام کرد که در متن توافق، «پرداخت فوری ۱۲ میلیارد دلار» از دارایی‌های مسدودشده ایران مطرح شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242787
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242787_1780077208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده با تشریح جزئیاتی از توافق احتمالی میان تهران و واشنگتن، روز جمعه هشتم خرداد اعلام کرد که استخراج اورانیوم با غنای بالا که در سه سایت هسته‌ای نطنز، اصفهان و فردو مدفون شده‌اند، از سوی آمریکا و با هماهنگی و همکاری جمهوری اسلامی انجام خواهد شد.
+
+ترامپ در پیامی که در شبکه اجتماعی تروث سوشال منتشر کرد، نوشت: «اورانیوم غنی‌شده که گاهی از آن به عنوان «گرد و غبار هسته‌ای» یاد می‌شود و در اعماق زمین زیر کوه‌های عملا فروریخته (ناشی از حمله قدرتمند بمب‌افکن‌های ما در ۱۱ ماه پیش) قرار دارد، توسط ایالات متحده (که توافق شده تنها کشوری است که در کنار چین توانایی مکانیکی انجام این کار را دارد) با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران و همچنین آژانس بین‌المللی انرژی اتمی، از زیر خاک بیرون کشیده و نابود خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242785
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242785_1780077209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران نوشت منابع آگاه ضمن رد ادعاهای تازه دونالد ترامپ درباره توافق احتمالی با جمهوری اسلامی، اظهارات او را «آمیخته‌ای از راست و دروغ» و تلاشی برای نمایش پیروزیِ ساختگی توصیف کرده‌اند. به گفته این منابع، تقریبا برای همه روشن شده که این ادعاها فاقد اعتبار است.
+
+فارس نوشت متن توافق که تحت قالب «تعهد در برابر تعهد» تدوین شده، در مراحل نهایی تصویب در تهران قرار دارد و هنوز تصمیم قطعی اتخاذ نشده است.
+
+فارس نوشت ترامپ مدعی شده تهران موظف است تنگه هرمز را بدون دریافت عوارض باز کند، در حالی که در متن توافق چنین‌بندی وجود ندارد.
+
+خبرگزاری وابسته به سپاه نوشت ترامپ ادعا کرده که جمهوری اسلامی مواد هسته‌ای خود را برمی‌چیند یا نابود می‌کند. منابع آگاه تاکید کرده‌اند که نه‌تنها چنین چیزی در یادداشت تفاهم وجود ندارد، بلکه این ادعا اساسا بی‌اساس است.
+
+فارس نوشت که مهم‌ترین بخش توافق که ترامپ به آن اشاره‌ای نکرده، شرط پرداخت فوری ۱۲ میلیارد دلار از دارایی‌های بلوکه‌شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فرانسوی: جارد کوشنر مانع امضای تفاهم‌نامه بین آمریکا و ایران شد
+@withyashar
+</div>
+
+## WithYashar — post 12887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤣😃
+</div>
+
+## WithYashar — post 12886
+
+
+
+
+## WithYashar — post 12885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرکل آژانس بین‌المللی انرژی اتمی پیشنهاد داد که قزاقستان اورانیوم غنی‌شده ایران را نگه‌داری کند
+@withyashar
+</div>
+
+## WithYashar — post 12884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لارنس نورمن، خبرنگار وال استریت ژورنال:
+
+این توافقی که ازش صحبت می‌شه فعلاً یه توافق کامل نیست که تمامی مسائل از جمله هسته‌ای رو در بر بگیره
+@withyashar
+</div>
+
+## WithYashar — post 12882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش جای ترامپ دو تا بی بی داشتیم البته همون یدونشم کارو در میاره .این کله زرد به خاطر پول زرد میکنه اخرش
+</div>
+
+## WithYashar — post 12881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش جای ترامپ دو تا بی بی داشتیم البته همون یدونشم کارو در میاره .این کله زرد به خاطر پول زرد میکنه اخرش
+</div>
+
+## WithYashar — post 12880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه عمو یاشار با پای پیاده میریم نه با ترامپ
+</div>
+
+## WithYashar — post 12879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه عمو یاشار با پای پیاده میریم نه با ترامپ
+</div>
+
+## WithYashar — post 12878
+
+
+
+
+## WithYashar — post 12877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ در اتاق وضعیت کاخ سفید مستقر شد.
+تصمیم‌گیری نهایی درباره مذاکرات با رژیم ایران در دستور کار است.
+نیویورک پست: واشینگتن برای گام‌های بعدی آماده می‌شود.
+@withyashar
+</div>
+
+## WithYashar — post 12876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظر میاد قاهره کنسل شد مارو وسط راه پیاده کرد
+</div>
+
+## WithYashar — post 12875
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظر میاد قاهره کنسل شد مارو وسط راه پیاده کرد
+</div>
+
+## WithYashar — post 12874
+
+<div align="center">
+  <a href="https://t.me/withyashar/12874" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐 @withyashar
+
+
+🌐 instagram.com/yashar
+</div>
+
+## WithYashar — post 12873
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: متن توافق که تحت قالب «تعهد در برابر تعهد» تدوین شده، در مراحل نهایی تصویب در ایران قرار دارد و هنوز تصمیم قطعی اتخاذ نشده است.
+@withyashar
+کلان رژیم جمهوری اسهالی‌تو کاره فیفتی فیفتیه 🥴🤣
+</div>
+
+## WithYashar — post 12872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : ترامپ تا نیمی از پول رو نداده همه چیز باد هوا است
+@withyashar 🤣
+</div>
+
+## WithYashar — post 12871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس: ادعاهای ترامپ دروغه و فعلاً خبری از توافق نیست.
+@withyashar
+</div>
+
+## WithYashar — post 12870
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12870_1780077210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از پست ترامپ در تروث سوشال، قیمت نفت برنت برای اولین بار پس از 50 روز به زیر 90 دلار در هر بشکه رسید.
+@withyashar
+</div>
+
+## WithYashar — post 12869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : ریلکس‌ باشید ترامپ در هر صورت کار رو در میاره ولی حامله میکنه 🤣🙌🏾 داریم میریم قاهره
+</div>
+
+## WithYashar — post 12868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگارهای نزدیک به کاخ سفید می‌گویند: ترامپ منظورش را در پستش اشتباه بیان کرده بود؛ او در واقع پایان محاصره دریایی علیه ایران را اعلام نکرده.
+
+بلکه منظورش این بوده که اگر ایران با این شروط موافقت کند، آن محاصره لغو خواهد شد.
+@withyashar 🥴
+</div>
+
+## mwarmonitor — post 9896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌امارات متحده عربی در طول جنگ، در هماهنگی با آمریکا و اسرائیل، ده‌ها حمله هوایی علیه ایران انجام داد - وال استریت ژورنال
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تانکر تارکرز: در روزهای اخیر، نفتکش‌ها در امتداد ساحل ایران و در تأسیسات دریایی اقدام به بارگیری نفت خام و انواع فرآورده‌های پالایش‌شده کرده‌اند. امروز (۲۹ مه ۲۰۲۶) نیز شاهد بارگیری یک نفتکش بسیار بزرگ (VLCC) به میزان دو میلیون بشکه نفت خام هستیم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع مطلع به من گفت که پست ترامپ در Truth Social درباره لغو محاصره، در واقع اولین شرط قبل از رفتن به مراحل بعدی تفاهم بوده است.
+
+🔸طبق گفته این منبع، طرف ایرانی اصرار داشته که ابتدا یک اعلام عمومی رسمی انجام شود. ترامپ به نظر می‌رسد این موضوع را به‌عنوان یک مسئله فرعی مطرح کرده، در حالی که تهران آن را یک اقدام مهم برای ایجاد اعتماد قبل از ورود به پرونده‌های حساس‌تر می‌داند.
+
+🔹تا این لحظه هیچ بحث مستقیمی درباره پرونده هسته‌ای انجام نشده است. انتظار می‌رود روند به‌تدریج و از طریق یک تفاهم‌نامه (MoU) پیش برود، به‌طوری که در هر مرحله، یک اقدام متقابل از سوی طرف مقابل انجام شود.
+
+🔸همان منابع می‌گویند که اعلام آتش‌بس بین حزب‌الله و اسرائیل نیز به‌عنوان بخشی از چارچوب گسترده‌تر در حال شکل‌گیری مورد انتظار است. علی هاشم خبرنگار الجزیره
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ: ​«ایران باید موافقت کند که هرگز سلاح یا بمب هسته‌ای نخواهد داشت. تنگه هرمز باید فوراً، بدون هیچ‌گونه عوارض (حق عبور)، برای تردد نامحدود کشتیرانی در هر دو جهت باز شود. تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، نابود خواهند شد (ما تعداد زیادی…
+</div>
+
+## mwarmonitor — post 9892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لارنس نورمن خبرنگار وال‌استریت ژورنال ؛ بار دیگر: توافق بر سر یک تفاهم‌نامه (MoU) به معنای توافق نهایی نیست که همه مسائل، از جمله موضوع هسته‌ای را پوشش دهد.
+
+🔹این بخش در واقع «بخش آسان‌تر» است، دقیقاً به این دلیل که بسیاری از مسائل به آینده موکول (به تعویق) شده‌اند.
+
+🔸اما اگر به‌طور منطقی این دیدگاه را داشته باشید که ممکن است هرگز یک توافق نهایی شکل نگیرد، این به این معنا نیست که یک چارچوب توافق یا MoU وجود نخواهد داشت.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس‌جمهور ترامپ در حال حاضر به سمت اتاق وضعیت (Situation Room) می‌رود تا تصمیم بگیرد آیا توافق با ایران را بپذیرد یا نه؛ توافقی که می‌تواند شامل بازگشایی تنگه هرمز، لغو محاصره آمریکا علیه بنادر ایران، و همچنین خارج کردن و نابود کردن اورانیوم غنی‌شده تهران باشد. نیویورک پست
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بله کله زرد توافق کرد
+</div>
+
+## mwarmonitor — post 9889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ: ​«ایران باید موافقت کند که هرگز سلاح یا بمب هسته‌ای نخواهد داشت. تنگه هرمز باید فوراً، بدون هیچ‌گونه عوارض (حق عبور)، برای تردد نامحدود کشتیرانی در هر دو جهت باز شود. تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، نابود خواهند شد (ما تعداد زیادی…
+</div>
+
+## mwarmonitor — post 9888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ:
+
+​«ایران باید موافقت کند که هرگز سلاح یا بمب هسته‌ای نخواهد داشت. تنگه هرمز باید فوراً، بدون هیچ‌گونه عوارض (حق عبور)، برای تردد نامحدود کشتیرانی در هر دو جهت باز شود. تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، نابود خواهند شد (ما تعداد زیادی از این مین‌ها را از طریق انفجار، با مین‌روب‌های زیردریایی فوق‌العاده خود پاکسازی کرده‌ایم. ایران کار حذف و/یا انفجار فوری هرگونه مین باقی‌مانده را که تعدادشان زیاد نخواهد بود، کامل خواهد کرد!). کشتیرانی‌هایی که به دلیل محاصره دریایی شگفت‌انگیز و بی‌سابقه ما در تنگه گرفتار شده بودند و این محاصره اکنون برداشته خواهد شد، می‌توانند فرآیند "بازگشت به خانه" را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، والدین و خانواده‌های خود سلام برسانید!
+​مواد غنی‌شده که گاهی اوقات از آن‌ها به عنوان "گرد و غبار هسته‌ای" یاد می‌شود و در اعماق زمین زیر کوه‌های عملاً فروریخته قرار دارند—که ناشی از حمله ۱۱ ماه پیش بمب‌افکن قدرتمند B2 ما بوده و روی آن جا خوش کرده است—توسط ایالات متحده (که توافق شده تنها کشوری است که در کنار چین توانایی مکانیکی انجام این کار را دارد!)، با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران، به علاوه آژانس بین‌المللی انرژی اتمی، از زیر خاک بیرون آورده و نابود خواهد شد.
+​تا اطلاع ثانوی هیچ پولی رد و بدل نخواهد شد. در مورد موارد دیگر که از اهمیت بسیار کمتری برخوردارند، توافق شده است. من هم‌اکنون در "اتاق وضعیت" (Situation Room) جلسه خواهم داشت تا تصمیم نهایی را اتخاذ کنم. از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9887
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9887_1780077210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸موشک بالستیک میان‌برد روسی «اورِشنیک» (Oreshnik) با قطعات قدیمی مونتاژ شده است.
+
+🔹کارشناسان اوکراینی بقایای موشک بالستیک جدید روسیه موسوم به «اورشنیک» را بررسی کرده‌اند و به این نتیجه رسیده‌اند که این موشک با استفاده از قطعات قدیمی ساخته شده است.
+
+🔸به گفته متخصصان، بسیاری از اجزا حداکثر تا سال‌های ۲۰۱۶–۲۰۱۷ تولید شده‌اند؛ از جمله قطعات روسی و بلاروسی (از کارخانه Integral در بلاروس). حتی یکی از واحدها تاریخ تولید ۲۰۱۷ را به‌طور واضح روی خود دارد.
+
+🔸با وجود آن‌که تبلیغات روسیه «اورشنیک» را یک سلاح پیشرفته و مدرن معرفی می‌کند، این موشک تا حد زیادی از قطعات قدیمی مونتاژ شده است.
+
+🔹همچنین قطعات خارجی ساخت چین، ایالات متحده آمریکا، ژاپن، آلمان و سوئیس در بقایای این موشک شناسایی شده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump and NYC Mayor Zohran Mamdani are on the same page about at least one thing: they both want the New York Knicks to win an NBA championship.
+
+"I'll say one of the few things the president and I agree on is not just that New York City is the greatest city in the world, but that we do want the Knicks to win the championship."
+
+Mamdani also says if Trump wants to attend a game, he'll let him enjoy it like any other fan.
+</div>
+
+## FoxNewsTwitter — post 342402
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342402_1780077212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I’ll kill your whole f–king family. Your whole f–king family is dead. Your children, your wife, all dead."
+
+A left-wing activist in Newark was caught on camera shouting those words at an unmasked ICE officer as protests outside the Delaney ICE facility turned chaotic.
+
+Acting AG Todd Blanche is now firing back, promising that the "disgusting" activist will be caught and charged, emphasizing that threatening a federal officer and their family is a federal crime.
+
+“That is disgusting ... and we see his face and I promise you we will find him, and when we find him, we will arrest him."
+</div>
+
+## FoxNewsTwitter — post 342401
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342401_1780077214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump defends Jaxson Dart against the fierce backlash he's facing following his recent rally appearance, showering the New York Giants quarterback with praise while brushing off critics.
+
+"He's a conservative guy. He said, 'I love you, sir.'"
+
+"When Jaxson gets harassed a little bit, he's also loved more, because we have more people than they do."
+
+Watch the full interview on @MyViewFNC tomorrow at 9 pm ET.
+</div>
+
+## FoxNewsTwitter — post 342400
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342400_1780077216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A furious customer — being labeled 'Chipotle Karen' — launched a burrito bowl straight into an employee’s face after a heated argument over her order.
+
+A Chipotle employee was left covered in food after an angry customer allegedly launched her order directly at the worker’s face during a confrontation inside the California restaurant.
+
+The moment was caught on camera. Now Santa Ana Police are asking for help identifying the woman, who investigators say took off after the assault.
+</div>
+
+## pm_afshaa — post 91840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت هر بشکه نفت به 86 دلار رسید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فرانسوی: جرد کوشنر مانع امضای تفاهم‌نامه بین آمریکا و ایران شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️
+♨️
+♨️
+</div>
+
+## pm_afshaa — post 91837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فایننشال تایمز:قزاقستان پیشنهاد کرد که اورانیوم غنی‌شده ایران به این کشور انتقال داده شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.12&port=15&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی پینگ 100 متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=mimecraft4ir.homes&port=25565&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی مخصوص دانلود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: ترامپ ادعاهای بی‌اساسی درباره توافق با ایران مطرح کرده، از جمله باز کردن تنگه هرمز بدون عوارض و برچیدن مواد هسته‌ای ایران، در حالی که چنین بندهایی در متن توافق وجود ندارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: محاصره دریایی ایران برداشته شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: محاصره دریایی ایران برداشته شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ss://MjAyMi1ibGFrZTMtYWVzLTI1Ni1nY206NXlaTGVmdzhOdHF3LzU4aXJUVzJPcE1zTnV5SmpSNjFCdVJlMmdDb3hqbz06ZG9WL2M3eEEzc28rZjJZalJrMkFKVyt1bHFmNkJQd2hGVWxKQmRLVGFsVT0=@s.api50951.ir:443#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نپسترنت پر سرعت مخصوص اینستا و یوتیوب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: محاصره دریایی ایران برداشته شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک پست :ترامپ هم اکنون در اتاق وضعیت کاخ سفید هست و قراره تصمیم خودش برای مذاکره با ایران رو بگیره
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: ایران می‌خواد اورانیومش رو به چین منتقل کنه؛ البته قبلش یه شرط گذاشته که اونم اینه که چین این اورانیوم رو به آمریکا نده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ازتون میخوام که برای پدرم کمک کنید بزارید کاناا ما تو این دنیا جز پدرمون کسی رو نداریم مادرم فوت کردن یدونه خواهر کوچیک دارم برادر هم نداریم پشتوانه لخته پدرم در حال حرکت به مغزشون هست صدرصد باید عمل باز بشن مدارک رو ببینید قیمت عمل ۷۰میلیون هست نمیدونیم…
+</div>
+
+## pm_afshaa — post 91823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ازتون میخوام که برای پدرم کمک کنید بزارید کاناا ما تو این دنیا جز پدرمون کسی رو نداریم
+مادرم فوت کردن
+یدونه خواهر کوچیک دارم
+برادر هم نداریم پشتوانه
+لخته پدرم در حال حرکت به مغزشون هست
+صدرصد باید عمل باز بشن
+مدارک رو ببینید
+قیمت عمل ۷۰میلیون هست نمیدونیم واقعا چیکار کنیم
+هیچ پشتوانه ای نداریم
+برادری کنید برای ما خواهش میکنم ازتون
+</div>
+
+## pm_afshaa — post 91816
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91816_1780077217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## iaghapour — post 2642
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2642_1780077219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آپدیت بزرگ ویندوز ۱۱ منتشر شد؛ پرسرعت‌تر و هوشمندتر!
+
+مایکروسافت به‌تازگی آپدیت جدید ویندوز ۱۱ (نسخه‌های ۲۴H۲ و ۲۵H۲) را با تمرکز بر افزایش سرعت و هوش مصنوعی منتشر کرد.
+
+مهم‌ترین تغییرات این به‌روزرسانی:
+
+🔹 اشتراک‌گذاری صدا: امکان اتصال هم‌زمان دو هدفون بلوتوثی مجزا به یک سیستم برای تماشای فیلم یا گوش دادن به موسیقی.
+
+🔸 دوربین مشترک: دسترسی هم‌زمان چند نرم‌افزار به وب‌کم بدون مسدود شدن تصویر.
+
+🔹 افزایش سرعت و جستجو: ارتقای چشمگیر سرعت منوی استارت و اجرای برنامه‌ها، به همراه امکان پیدا کردن سریع فایل‌ها با جستجوی تنها دو حرف.
+
+🔸 پایش هوش مصنوعی و باتری: نمایش دقیق میزان مصرف پردازنده عصبی (NPU) در تسک‌منیجر و بهینه‌سازی مصرف انرژی لپ‌تاپ‌ها در حالت استندبای.
+
+این آپدیت با رفع خطاهای ناگهانی و بهبود سیستم امنیتی Windows Hello، تجربه بسیار روان‌تری ارائه می‌دهد و در ژوئن ۲۰۲۶ به‌صورت خودکار برای همه کاربران فعال خواهد شد.
+
+🆔 @iAghapour
+</div>
+
+## DEJradio — post 5110
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5110_1780077219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 مراسم حج؛ زیارت پرفشار حجرالاسود، زائرانی که با فنون رزمی و کشتی مهمان خدا می‌شوند در موارد متعدد سلامت و جان خودشان یا دیگران را تهدید می‌کنند.
+
+#حج #زیارت
+@DEJradio
+</div>
+
+## DEJradio — post 5106
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5106_1780077221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 بر اساس اطلاعات دریافتی دژ، یکی از جانفدایان میهن، شایان شکاری ۲۰ ساله است که ۱۸ دی‌ماه ۱۴۰۴ در شهر رشت هدف گلوله سرکوبگران قرار گرفت. او قهرمان کشوری و نایب قهرمان تکواندو باشگاه‌های آسیا بود و در رشته تریبت بدنی در دانشگاه تحصیل می‌کرد.
+
+دژ از مسیر منابع اختصاصی دریافته که حکومت به خانواده او پیشنهاد پرداخت وجه داده بود و اینکه بپذیرند «شهید» شده است اما آنها قبول نکردند.
+
+شایان شکاری و امیرمحمد کرمی، دو عضو تیم‌ملی تکواندوی نوجوانان ایران در سال ۱۴۰۱، در جریان انقلاب ملی ایرانیان به دست نیروهای سرکوب کشته شدند.
+
+#شایان_شکاری #امیرمحمد_کرمی #انقلاب_شیروخورشید
+@DEJradio
+</div>
+
+## DEJradio — post 5105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تهران بیش از پیش در تهدیدهای تروریستی در دانمارک دست دارد
+
+سازمان اطلاعاتی دانمارک اعلام کرد جمهوری اسلامی نقشی پررنگ‌تر از پیش در تهدیدهای امنیتی و تروریستی علیه این کشور ایفا می‌کند.
+رئیس سازمان امنیت و اطلاعات ملی دانمارک گفت این تهدیدها به‌ویژه متوجه منافع اسرائیلی و یهودی و همچنین مخالفان ایرانی ساکن اروپا، از جمله در دانمارک است.
+به گزارش این نهاد امنیتی، سرویس‌های اطلاعاتی جمهوری اسلامی برای برنامه‌ریزی عملیات از شبکه‌های بزهکار و جذب نیرو در اروپا استفاده می‌کنند.
+دانمارک همچنین گفت تشدید تنش میان جمهوری اسلامی، اسرائیل و آمریکا در ماه‌های پیشین، بر میزان تهدید در کشورهای شمال و غرب اروپا تاثیر گذاشت.
+
+#خبر #دژ #تروریسم
+@DEJradio
+</div>
+
+## DEJradio — post 5104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بریتانیا علیه یک شهروند یونانی به اتهام همکاری با سرویس اطلاعاتی مرتبط با جمهوری اسلامی اعلام جرم کرد
+
+پلیس بریتانیا اعلام کرد یک شهروند ۴۶ ساله یونانی را به اتهام همکاری با یک سرویس اطلاعاتی خارجی متهم کرده است.
+به گفتۀ پلیس بریتانیا، گمان می‌رود ارتباطات فرد متهم، مرتبط با نهادهای امنیتی جمهوری اسلامی بوده باشد.
+پلیس ضدتروریسم بریتانیا گفت این پرونده در مورد تلاش برای هدف قرار دادن یک روزنامه‌نگار شاغل در شبکۀ تلویزیونی ایران اینترنشنال است.
+
+#خبر #دژ #بریتانیا
+@DEJradio
+</div>
+
+## DEJradio — post 5103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ برای تصمیم پایانی در مورد جمهوری اسلامی به اتاق وضعیت می‌رود
+
+دونالد ترامپ، رئیس جمهوری آمریکا اعلام کرد روز آدینه در اتاق وضعیت کاخ سفید همراه با مشاورانش درمورد توافق احتمالی با جمهوری اسلامی تصمیم پایانی را می‌گیرد.
+ترامپ گفت جمهوری اسلامی باید متعهد شود هرگز سلاح هسته‌ای تولید نمی‌کند، تنگۀ هرمز دوباره باز می‌شود و مین‌های دریایی نیز برداشته یا منهدم می‌شود.
+رئیس جمهوری آمریکا گفت بر اساس توافق احتمالی، محاصرۀ دریایی آمریکا علیه جمهوری اسلامی لغو می‌شود.
+همچنین کشتی‌هایی که در تنگۀ هرمز متوقف شده بودند، روند بازگشت را آغاز می‌کنند.
+دونالد ترامپ در مورد ذخایر اورانیوم غنی‌شدۀ جمهوری اسلامی گفت این مواد با هماهنگی تهران و آژانس بین‌المللی انرژی اتمی، از زیر زمین خارج و نابود می‌شود.
+ترامپ گفت تنها آمریکا و چین توانایی فنی اجرای چنین عملیاتی را دارند.
+او تأکید کرد که فعلا هیچ پولی با تهران رد و بدل نمی‌شود. ترامپ افزود دربارۀ موضوعات دیگر که اهمیت کمتری دارند، توافق به‌دست آمده است.
+
+#خبر #دژ #توافق
+@DEJradio
+</div>
+
+## VahidOnline — post 75792
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75792_1780077221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پستی از نیوت گینگریچ، رییس پیشین مجلس نمایندگان آمریکا، را در تروث سوشال بازنشر کرد که در آن نوشته شده بود: پس از بررسی جنگ ایران در این هفته، متقاعد شدم ترامپ در آستانه یک پیروزی تاریخی قرار دارد
+IranIntlbrk
+
+پستی که گینگریچ ۸ ساعت پیش نوشته بود، ترجمه ماشین:
+پس از آنکه این هفته را صرف بررسی جنگ ایران کردم، اکنون متقاعد شده‌ام که رئیس‌جمهور ترامپ در آستانه یک پیروزی تاریخی قرار دارد. نقطه عطف واقعی برای من زمانی رقم خورد که تصمیم‌ها و مانورهای رئیس‌جمهور ترامپ را نه از منظر یکجانبه‌گرایی آمریکا، بلکه از منظر رهبر یک ائتلاف تاریخی چشمگیر بررسی کردم؛ بزرگ‌ترین ائتلافی که تاکنون در خاورمیانه مدرن شکل گرفته است.
+
+همه می‌دانند که اسرائیل متحد مهمی است. اما آنچه کمتر درباره آن صحبت می‌شود، عمق حمایت امارات متحده عربی، قطر، بحرین، عربستان سعودی و دیگر کشورهای منطقه است. برای دیکتاتوری ایران باید بسیار تأمل‌برانگیز باشد که دریابد حتی یک متحد ندارد که حاضر باشد محاصره دریایی آمریکا را به چالش بکشد. آرام‌آرام، به‌تدریج و با احتیاط، متحدان اروپایی ما نیز در حال صف‌آرایی برای کمک در خلیج فارس و تنگه هرمز هستند.
+
+بخش بزرگی از مانورهای رئیس‌جمهور ترامپ علیه ایران زمانی معنا پیدا می‌کند که او را نه صرفاً یک رئیس‌جمهور یکجانبه‌گرای آمریکایی، بلکه رهبر یک ائتلاف ببینیم. من بخش زیادی از چند هفته گذشته را صرف بررسی گزینه‌های نظامی کردم؛ از جمله پیروزی در نبرد خلیج فارس و تنگه هرمز و، در صورت لزوم، استفاده از سطحی تکان‌دهنده و خردکننده از قدرت نظامی؛ مشابه آنچه رئیس‌جمهور نیکسون و وزیر خارجه کیسینجر در کریسمس ۱۹۷۲ علیه هانوی و هایفونگ به کار گرفتند؛ اقدامی که هر دو رهبر معتقد بودند ویتنام شمالی را به پذیرش آتش‌بس و آزادی اسرای آمریکایی متقاعد کرد.
+
+اگر این یک کارزار یکجانبه آمریکایی بود، می‌توانستم با اشتیاق از یک کارزار نظامی تهاجمی‌تر حمایت کنم. اما در عین حال روشن است که چنین اقدامی ائتلاف را از هم می‌پاشاند، زیرا متحدان عرب ما متقاعدند که ایران هنوز می‌تواند خسارت عظیمی به میدان‌های نفتی و زیرساخت‌های آنان وارد کند. ائتلاف‌ها ذاتاً کندتر از کارزارهای یکجانبه عمل می‌کنند. با این حال، ائتلاف‌ها در نهایت قدرتی به‌مراتب بیشتر را وارد میدان می‌کنند.
+
+من نیز مانند همه دیگران از سرعت گفت‌وگوها با این دیکتاتوری سرخورده‌ام؛ اما پس از بررسی توازن قوا و گزینه‌های در دسترس ائتلاف از یک سو، و دیکتاتوری مذهبیِ ایران از سوی دیگر، آماده‌ام بگویم که رهبری ائتلافیِ رئیس‌جمهور ترامپ ــ چیزی که تقریباً هیچ‌یک از منتقدان او نمی‌خواهند به آن اذعان کنند ــ در آستانه دستیابی به یک پیروزی عظیم تاریخی است.
+
+و اگر دیکتاتوری ایران در نهایت ثابت کند که به شکلی نومیدانه به موضعی انتحاری پایبند است، زمان کافی برای یک کارزار نظامی با قدرت و اثربخشی عظیم وجود خواهد داشت. در هر صورت، ما در آستانه یک پیروزی شگفت‌انگیز برای ارزش‌های خود و برای خاورمیانه‌ای امن‌تر قرار داریم.
+NewtGingrich
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75791
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75791_1780077222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
+
+او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75790
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75790_1780077222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز روز جمعه به نقل از یک منبع ایرانی نوشت که بین تهران و واشینگتن یک تفاهم سیاسی صورت گرفته اما هنوز نهایی نشده و همچنین توافق با ایران شامل نابودی مواد هسته‌ای نیست.
+
+دونالد ترامپ، رئیس‌جمهور آمریکا ساعتی پیش اعلام کرد که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
+
+منبع ایرانی به رویترز گفته است که تفاهم بین واشینگتن و تهران شامل موضوع هسته‌ای نیست و اظهارات آقای ترامپ درباره نابودی اورانیوم ایران را رد کرده است.
+
+خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
+این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75789
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75789_1780077223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ پست ترامپ، ترجمه ماشین:
+ایران باید بپذیرد که هرگز سلاح یا بمب هسته‌ای نخواهد داشت.
+
+تنگه هرمز باید فوراً، بدون عوارض، برای عبور و مرور آزادانه کشتی‌ها در هر دو جهت باز شود. همه مین‌های دریایی، اگر وجود داشته باشند، برچیده خواهند شد؛ ما با مین‌روب‌های زیرآبی فوق‌العاده خود، شمار زیادی از این مین‌ها را از طریق انفجار از بین برده‌ایم. ایران نیز باید فوراً هر مین باقی‌مانده‌ای را، که تعدادشان زیاد نخواهد بود، جمع‌آوری یا منفجر کند.
+
+کشتی‌هایی که به‌دلیل محاصره دریایی شگفت‌انگیز و بی‌سابقه ما در تنگه گرفتار شده بودند ــ ❗️ محاصره‌ای که اکنون لغو خواهد شد ــ می‌توانند روند «بازگشت به خانه» را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، پدران، مادران و خانواده‌هایتان سلام برسانید!
+
+مواد غنی‌شده، که گاهی از آن با عنوان «غبار هسته‌ای» یاد می‌شود و در اعماق زمین دفن شده؛ در حالی که کوه‌هایی که عملاً بر اثر حمله قدرتمند بمب‌افکن‌های B-2 ما در ۱۱ ماه پیش فرو ریخته‌اند روی آن قرار دارند، ❗️توسط ایالات متحده از زیر خاک بیرون آورده خواهد شد؛ کشوری که، طبق توافق، تنها کشور در کنار چین است که توان مکانیکی انجام چنین کاری را دارد.
+این کار با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران و همچنین آژانس بین‌المللی انرژی اتمی انجام خواهد شد و سپس این مواد نابود خواهد شد.
+
+❗️ تا اطلاع ثانوی، هیچ پولی رد و بدل نخواهد شد.
+
+درباره موارد دیگری که اهمیت بسیار کمتری دارند نیز توافق حاصل شده است.
+
+💥اکنون در اتاق وضعیت جلسه خواهم داشت تا تصمیم نهایی را بگیرم.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339625
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339625_1780077223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری صداوسیمای جمهوری اسلامی اعلام کرد «متن ادعایی ترامپ یک‌طرفه» است و هنوز درباره هیچ‌کدام از بندهای آن توافقی نشده است.
+خبرگزاری صداوسیما افزود جمهوری اسلامی هنوز متن ۱۴بندی ادعایی رسانه‌ها را برای آمریکا ارسال نکرده است.
+
+خبرگزاری صداوسیما همچنین اعلام کرد ادعای ترامپ درباره مواد هسته‌ای ایران عقب‌نشینی آشکار از ادعاهای اولیه درباره انتقال این مواد به آمریکا است.
+
+پیش‌تر دونالد ترامپ اعلام کرد که برای اتخاذ تصمیم نهایی درباره ایران، در اتاق وضعیت کاخ سفید جلسه تشکیل داده است.
+https://iranintl.com/202605299158
+</div>
+
+## IranIntlTV — post 339624
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339624_1780077224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه گفت که ما در این مرحله بر خاتمه جنگ متمرکز هستیم و در مورد جزئیات برنامه هسته‌ای مذاکره‌ای نداریم.
+سخنگوی وزارت خارجه جمهوری اسلامی افزود: «تاکنون تفاهمی با آمریکا نهایی نشده است.»
+
+او افزود: «آنچه آمریکایی‌ها تحت عنوان محاصره دریایی از آن نام می‌برند، از ابتدا یک اقدام غیرقانونی بود؛ هم نقض آتش‌بس بود و هم اخلال در آزادی دریانوردی بین‌المللی. ما باید ببینیم در عمل آیا واقعا به این حرفشان عمل خواهند کرد یا صرفا یک ادعای تبلیغاتی است.»
+
+او ادامه داد که با زبان «باید»، ۴۷ سال پیش خداحافظی کردیم، هیچ یک از طرف‌های غربی وقتی درباره جمهوری اسلامی صحبت می‌کنند، «نباید از باید» استفاده کنند.
+https://iranintl.com/202605296308
+</div>
+
+## IranIntlTV — post 339623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال با راه‌اندازی کارزار مردمی رشت در صدد است تا جاویدنامان کشته‌شده در اعتراضات دی‌ماه این شهر را شناسایی کند. اگر از شاهدان عینی کشتار بودید و یا عضوی از خانواده و نزدیکان‌تان در این قتل‌عام حکومتی هدف قرار گرفته، در بات تلگرامی اینتل‌مدیا که آدرس آن در تلگرام ایران‌اینترنشنال نوشته شده، پیام بدهید و اسناد، تصاویر و روایات خود را بفرستید.
+</div>
+
+## IranIntlTV — post 339622
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339622_1780077224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش وال‌استریت ژورنال، امارات متحده عربی در روزهای ابتدایی جنگ و حتی تا یک روز پس از اعلام آتش‌بس، ده‌ها حمله هوایی در ایران انجام داده است.
+به گفته منابع آگاه، دامنه این حملات بسیار گسترده‌تر از چیزی بوده که پیش‌تر گزارش شده بود.
+
+بر اساس این گزارش، این موضوع نشان می‌دهد امارات متحده عربی در مقایسه با برخی کشورهای منطقه خلیج‌فارس، رویکردی تهاجمی‌تر و همسو با منافع راهبردی خود اتخاذ کرده است.
+https://iranintl.com/202605292290
+</div>
+
+## IranIntlTV — post 339621
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339621_1780077225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دور تازه مذاکرات اسرائیل و لبنان در واشینگتن در حالی برگزار می‌شود که عملیات ارتش اسرائیل در لبنان ادامه دارد.
+
+بنا بر گزارش‌ها، در ۴۰ روز گذشته بیش از ۸۰۰ حمله هوایی به مناطق مختلف لبنان انجام شده است.
+
+گزارش اشکان صفایی، خبرنگار ایران‌اینترنشنال.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339620
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339620_1780077227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خانعلی‌زاده، عضو تیم رسانه‌ای هیات مذاکره‌کننده جمهوری اسلامی، نوشت که در متن تفاهم احتمالی هشت بند از ۱۰ بند بیانیه شورای عالی امنیت ملی که به تایید مجتبی خامنه‌ای رسیده، رعایت نشده و زیر پا گذاشته شده است.
+
+او افزود که تفاهم‌نامه کنونی برخلاف بیانیه آتش‌بس شورای عالی امنیت ملی است و مشخص شده که اساسا مذاکرات پسااسلام‌آباد، بر مبنای شروط رهبری انجام نشده است.
+https://iranintl.com/202605292056
+</div>
+
+## IranIntlTV — post 339619
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339619_1780077227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور رهبر کشته‌شده جمهوری اسلامی گفت: «داغ رهبر شهید در دل مردم هرگز سرد نخواهد شد و رهبری در دل مردم جان و عمق گرفته بود و کسانی که او را دیده و درک کرده‌اند، امکان ندارد این داغ از دلشان برود.»
+
+او در خصوص مذاکرات با آمریکا افزود: «ما هیچ اطمینانی به آمریکایی‌ها نداریم، اما دیپلماسی نیز بخشی از جنگ است.»
+https://iranintl.com/202605297605
+</div>
+
+## IranIntlTV — post 339618
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339618_1780077228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال درحالی با تیم ملی گامبیا نخستین دیدار تدارکاتی خود پیش از جام جهانی را انجام می‌دهد که این تیم فقط با ۱۵ بازیکن به مصاف تیم امیر قلعه‌نویی رفته است.
+
+🔹از سوی دیگر در این بازی، یاکوبه مینته، تنها بازیکن سرشناس گامبیا که در برایتون بازی می‌کند هم حضور ندارد.
+
+🔹علاوه بر یانکوبا مینته،‌ دیگر ستاره‌های گامبیا هم در بازی با تیم ملی غایب هستند؛ علیو فادرا، ابوبکار کینته و عبدولی سیسای با این تیم رده ۱۱۶ فیفا به ترکیه نرفته‌اند.
+
+🔹از سوی دیگر، میانگین سنی گامبیا در این بازی، ۲۵ سال است، این درحالی است که تیم فوتبال ایران با بازیکنان پا به سن گذاشته و میانگین سنی ۲۹ سال، به میدان رفته است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339617
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339617_1780077228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام ارشد جمهوری اسلامی گفت اظهارات دونالد ترامپ درباره ذخایر اورانیوم با غنای بالای ایران صحت ندارد.
+
+این مقام ارشد جمهوری اسلامی همچنین افزود تفاهم‌نامه احتمالی میان تهران و واشینگتن شامل هیچ‌گونه موضوع مرتبط با پرونده هسته‌ای نیست.
+
+این مقام ارشد جمهوری اسلامی گفت که میان تهران و واشینگتن یک تفاهم سیاسی حاصل شده، اما این توافق هنوز نهایی نشده است.
+https://iranintl.com/202605290076
+</div>
+
+## IranIntlTV — post 339616
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339616" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | جمعه ۸ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339615
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339615_1780077229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حمله شبانه روسیه به اوکراین، یک پهپاد به ساختمانی در جنوب‌شرقی رومانی برخورد کرد و دو نفر زخمی شدند. رییس کمیسیون اروپا با اعلام همبستگی با رومانی گفت روسیه بار دیگر از خط قرمز عبور کرده است.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339614
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339614_1780077231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت که تا این لحظه تفاهم نهایی بین جمهوری اسلامی و آمریکا صورت نگرفته و پست ترامپ در تروث سوشال در چارچوب الگوی همیشگی آن در اعلام نظرهای یکسویه و خود بزرگ‌بینانه است.
+
+تسنیم افزود: «اصرار ترامپ مبنی بر عدم پرداخت پول‌های بلوکه شده، صرفا سوءظن تهران نسبت به جدیت آمریکا را تشدید می‌کند.»
+
+رسانه سپاه نوشت که اظهارات دونالد ترامپ درباره برداشتن محاصره دریایی ایران را باید با تردید نگریست و البته اگر واقعا در عمل انجام شود، تازه به منزله توقف یکی از موارد نقض آتش‌بس است؛ زیرا از ابتدا نباید محاصره‌ای صورت می‌گرفت.
+https://iranintl.com/202605291710
+</div>
+
+## IranIntlTV — post 339613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- جمعه ۸ خرداد:
+
+🔹از کاشان: واقعا وضعیت افتضاحه، اصلا نمی‌شه زندگی کرد، مدام منتظر یک اتفاقیم که این وضعیت تموم شه؛ داره بهترین سال‌های عمرمون این‌جوری می‌گذره، خیلی سخته.
+
+🔹هنوز که هنوزه واسه جاویدنامان اشک می‌ریزیم. وقتی خودم رو جای خانواده‌های این عزیزان می‌ذارم قلبم به درد میاد. نباید این خون‌ها پایمال بشه.
+
+🔹از لار پیام می‌دم، زندگی خیلی سخت شده، حقوق‌های کارمندها رو سر ماه نمی‌دن و همه چیز بیش از اندازه گرون شده.
+
+🔹چرا ما دهه‌ نودی‌ها باید در گرانی و آرزو به دل ماندن زندگی کنیم؟
+
+🔹از اول هم قرار نبود که آمریکا و اسرائیل رژیم رو برای ما تغییر بدن. این کار خودمونه. بازم هم دستشون درد نکنه. کی ما می‌تونستیم این همه مهره‌ کلیدی رو از سر راه انقلابمون برداریم. نیمه‌ی پر لیوان رو ببینید. کسی برای حکومت نمونده جز سروصدای چند ارزشی.
+
+🔹گفتن جریمه اقساط رو می‌بخشیم ولی الان دارن با چند برابر سود دیرکرد اقساط می‌گیرن.
+
+🔹برای یک شانه تخم‌مرغ باید یک روز کار کنی.
+
+🔹خریدهای عادی ماهانه هر دفعه گران‌تر از قبل می‌شه، نمی‌دونم دیگه تا کی می‌شه ادامه داد، اعتراض کنی می‌کشنت، سکوت کنی هم کم‌کم دیگه هیچی برای خوردن نداری.
+
+🔹من یک تئاتری‌ام. شرایط بچه‌های تئاتر خوب نیست. خیلی‌ها خرج بچه و اجاره خانه دارن. تا هر اتفاقی افتاد کرکره تئاتر رو کشیدن پایین. تنها شغلی هستیم در ایران که اتفاقا اصلا شغل محسوب نمی‌شیم. اگر کار نکنم هیچ‌کس نمیاد بگه کجایی. ۴۷ ساله که دیواری کوتاه‌تر از ما نیست.
+</div>
+
+## IranIntlTV — post 339612
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339612_1780077231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن محمودی، رییس شورای هماهنگی تبلیغات اسلامی تهران گفت: «ستاد آماده برگزاری مراسمی باشکوه و ده‌ها میلیونی برای رهبر شهیدمان است، اما زمان قطعی این مراسم هنوز مشخص نیست و به محض مشخص شدن اعلام خواهد شد.»
+
+او ادامه داد: «موکب‌ها می‌توانند برای ثبت نام مراجعه کنند تا مراسم باشکوه برگزار شود.»
+
+علی خامنه‌ای، رهبر پیشین جمهوری اسلامی در لحظات آغازین جنگ در ۹ اسفند ۱۴۰۴ کشته شد اما با گذشت حدود سه ماه، وضعیت جنازه و تشییع او هنوز مشخص نیست.
+https://iranintl.com/202605297702
+</div>
+
+## IranIntlTV — post 339611
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339611_1780077232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخستین همایش انجمن شیر و خورشید اروپا با محوریت سرمایه سیاسی در استکهلم برگزار می‌شود. این گردهمایی با هدف معرفی فعالیت‌های انجمن و گسترش تعامل میان دانشجویان و فعالان مدنی برگزار خواهد شد.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال و گفت‌وگو با افشین خائف، کنشگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339610
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339610_1780077234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال، در پاسخ به کارزار مردمی، روایتی از شیوه سوءاستفاده نیروهای مسلح از آمبولانس برای شلیک به مردم را ارائه می‌دهد. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339609
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339609_1780077236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، هشدار داد اگر عمان به جمهوری اسلامی برای ایجاد سیستم عوارض در تنگه هرمز کمک کند، با تحریم مواجه خواهد شد. این موضع در پی گزارش‌هایی مطرح شده است که از احتمال مدیریت مشترک تنگه هرمز توسط ایران و عمان خبر می‌دهند.
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339607
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339607_1780077237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران نوشت منابع آگاه ضمن رد ادعاهای تازه دونالد ترامپ درباره توافق احتمالی با جمهوری اسلامی، اظهارات او را «آمیخته‌ای از راست و دروغ» و تلاشی برای نمایش پیروزیِ ساختگی توصیف کرده‌اند. به گفته این منابع، تقریبا برای همه روشن شده که این ادعاها فاقد اعتبار است.
+
+فارس نوشت متن توافق که تحت قالب «تعهد در برابر تعهد» تدوین شده، در مراحل نهایی تصویب در تهران قرار دارد و هنوز تصمیم قطعی اتخاذ نشده است.
+
+فارس نوشت ترامپ مدعی شده تهران موظف است تنگه هرمز را بدون دریافت عوارض باز کند، در حالی که در متن توافق چنین‌بندی وجود ندارد.
+
+خبرگزاری وابسته به سپاه نوشت ترامپ ادعا کرده که جمهوری اسلامی مواد هسته‌ای خود را برمی‌چیند یا نابود می‌کند. منابع آگاه تاکید کرده‌اند که نه‌تنها چنین چیزی در یادداشت تفاهم وجود ندارد، بلکه این ادعا اساسا بی‌اساس است.
+
+فارس نوشت که مهم‌ترین بخش توافق که ترامپ به آن اشاره‌ای نکرده، شرط پرداخت فوری ۱۲ میلیارد دلار از دارایی‌های بلوکه‌شده است.
+https://iranintl.com/202605294432
+</div>
+
+## IranIntlTV — post 339606
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339606_1780077238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس گفت: «ما مخالف تعلیق غنی‌سازی یا اعطای مواد هسته‌ای به دشمن هستیم. چرا که دیگر آن دوره گذشته است.»
+او افزود: «جنگ در همه جبهه‌ها به‌ویژه لبنان باید پایان یابد. دشمن باید محاصره دریایی را بردارد و مدیریت ما را در تنگه هرمز به رسمیت بشناسد.»
+
+او ادامه داد: «مذاکرات جاری را از جنس مذاکرات گذشته نمی‌بینیم که یک امتیازی بدهیم و یک امتیازی بگیریم. بلکه ما خود را پیروز می‌دانیم و معتقد هستیم که خواسته‌های حداکثری خود را باید از دشمن مطالبه کنیم.»
+https://iranintl.com/202605298968
+</div>
+
+## IranIntlTV — post 339605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که تازه به ایران‌اینترنشنال رسیده، دفن شبانه جاویدنام حمید شاکریان را به دلیل فشار ماموران حکومت نشان می‌دهد.
+شاکریان در ۱۹ دی ۱۴۰۴ از ناحیه سر هدف شلیک گلوله ماموران قرار گرفت و پیکر او را یک هفته بعد به خانواده تحویل دادند که با تدابیر امنیتی به خاک سپرده شد.
+</div>
+
+## Shin_Persian — post 6305
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6305_1780077238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 16:27:26 UTC IRGC-owned Tasnim News: "No final agreement has been reached between Iran and the United States at this time. According to Tasnim News Agency’s reporter, no final agreement has…
+</div>
+
+## Shin_Persian — post 6304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 16:27:26 UTC
+
+IRGC-owned Tasnim News:
+
+"No final agreement has been reached between Iran and the United States at this time.
+
+According to Tasnim News Agency’s reporter, no final agreement has been concluded between Iran and the United States so far. President Trump's tweet aligns with his consistent pattern of unilateral and self-aggrandizing pronouncements.
+
+Donald Trump's statements concerning the lifting of the naval blockade on Iran, emanating from the head of the terrorist U.S. administration, should be viewed with skepticism. Should such an action materialize, it would merely signify the cessation of one of numerous ceasefire violations, given that such a blockade should never have been initiated.
+
+Furthermore, Trump's assertions and those of American media outlets regarding the nuclear issue are unfounded, as no detailed discussions on nuclear matters are currently taking place in this area.
+
+The U.S. President's insistence on not releasing Iran's blocked funds solely intensifies Iran's suspicion regarding the seriousness of the United States.
+
+The Islamic Republic of Iran has repeatedly emphasized that the status of its blocked assets must be clarified prior to any preliminary agreement."
+
+فارسی
+
+خبرگزاری تسنیم وابسته به سپاه پاسداران انقلاب اسلامی (IRGC):
+
+«تا این لحظه هیچ توافق نهایی میان ایران و ایالات متحده حاصل نشده است.
+
+به گزارش خبرنگار خبرگزاری تسنیم، تاکنون هیچ توافق نهایی بین ایران و ایالات متحده منعقد نشده است. توئیت پرزیدنت ترامپ با الگوی همیشگی او در اظهارات یک‌جانبه و خودبزرگ‌بینانه مطابقت دارد.
+
+اظهارات دونالد ترامپ در خصوص رفع محاصره دریایی ایران که از سوی رئیس دولت تروریست آمریکا مطرح شده، باید با تردید نگریسته شود. در صورت تحقق چنین اقدامی، این تنها به معنای توقف یکی از موارد متعدد نقض آتش‌بس خواهد بود، چرا که چنین محاصره‌ای اساساً نباید هرگز آغاز می‌شد.
+
+علاوه بر این، ادعاهای ترامپ و رسانه‌های آمریکایی در مورد موضوع هسته‌ای بی‌اساس است، زیرا در حال حاضر هیچ بحث مفصلی در مورد مسائل هسته‌ای در این زمینه در جریان نیست.
+
+اصرار رئیس‌جمهور آمریکا بر عدم آزادسازی اموال بلوکه شده ایران، صرفاً سوءظن ایران را نسبت به جدیت ایالات متحده تشدید می‌کند.
+
+جمهوری اسلامی ایران بارها تأکید کرده است که وضعیت دارایی‌های بلوکه شده‌اش باید پیش از هرگونه توافق مقدماتی روشن شود.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6303
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6303_1780077239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 14:55:22 UTC President Trump @POTUS: "Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in…
+</div>
+
+## Shin_Persian — post 6302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 14:55:22 UTC
+
+President Trump @POTUS:
+"Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions. All water mines (bombs), if any, will be terminated (we have removed, through
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«ایران باید موافقت کند که هرگز سلاح هسته‌ای یا بمب نخواهد داشت. تنگه هرمز باید فوراً برای تردد نامحدود کشتی‌رانی در هر دو جهت، بدون هیچ‌گونه حق‌العبوری، باز شود. تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، نابود خواهند شد (ما حذف کرده‌ایم، از طریق
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6301
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6301_1780077239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 15:49:40 UTC IRGC-owned Fars News in response to POTUS' post: """ Knowledgeable sources, while refuting the recent claims of the American president regarding a potential agreement with Iran,…
+</div>
+
+## Shin_Persian — post 6300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 15:49:40 UTC
+
+IRGC-owned Fars News in response to POTUS' post:
+
+""" Knowledgeable sources, while refuting the recent claims of the American president regarding a potential agreement with Iran, have described his statements as "a mixture of truth and falsehood" and an attempt to present a fabricated victory. According to these sources, it has become evident to nearly everyone that these claims lack credibility.
+
+According to this report, the text of the agreement, drafted under the framework of "commitment for commitment," is in its final stages of approval in Iran, and a definitive decision has not yet been made. In contrast, Trump, who sees himself unable to withdraw from the agreement, has made statements that contradict the provisions of the agreement text. He has simultaneously announced an immediate end to the blockade.
+
+Trump's Distortion of Key Agreement Provisions:
+
+1. Strait of Hormuz: Trump has claimed that Iran is obliged to open the Strait of Hormuz without imposing tolls, whereas no such clause exists in the agreement text. Iran has emphasized that after the lifting of the blockade, it will open the strait according to its pre-determined arrangements. These arrangements could include monitoring and inspection of vessels, as well as providing services and ensuring security, for which Iranian reporters from Fars News Agency hear preparations are underway.
+
+2. Dismantling of Nuclear Materials: Trump has alleged that Iran will dismantle or destroy its nuclear materials. Knowledgeable sources have stressed that not only is there no such provision in the memorandum of understanding, but this claim is fundamentally groundless.
+
+Key Agreement Clauses Ignored by Trump:
+
+1. Immediate Payment of 12 Billion Dollars: The most crucial part of the agreement, which Trump has not mentioned, is the condition for an immediate payment of 12 billion dollars from Iran's blocked assets. According to the agreement text, this amount must be paid immediately, and until this payment is made, Iran will not enter any subsequent negotiation stages. Failure to implement this clause would constitute a violation of U.S. commitments.
+
+2. Ceasefire in Lebanon: Another issue is the establishment of a complete ceasefire in Lebanon in accordance with Hezbollah's views.
+
+According to knowledgeable sources, only if these issues are resolved will Iran, in the next stage, engage in discussions regarding the lifting of all sanctions and the nuclear issue, in accordance with its red lines.
+
+Concurrent with these statements, Iranian officials have emphasized that the final agreement will be formulated based on the principles and red lines of the Islamic Republic of Iran's system and with a complete distrustful approach towards the United States, such that any breaking of promises will be met with immediate reciprocal action. """
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6299
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6299_1780077240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 14:55:22 UTC President Trump @POTUS: "Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in…
+</div>
+
+## Shin_Persian — post 6298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 14:55:22 UTC
+
+President Trump @POTUS:
+"Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions. All water mines (bombs), if any, will be terminated (we have removed, through
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+پرزیدنت ترامپ @POTUS:
+«ایران باید موافقت کند که هرگز سلاح یا بمب هسته‌ای نخواهد داشت. تنگه هرمز باید فورا، بدون عوارض، برای ترافیک کشتیرانی نامحدود در هر دو جهت باز شود. تمام مین‌های آبی (بمب‌ها)، در صورت وجود، منهدم خواهند شد (ما برداشته‌ایم، از طریق...»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6297
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6297_1780077241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Fri, 29 May 2026 14:55:22 UTC President Trump @POTUS: "Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions.…
+</div>
+
+## Shin_Persian — post 6296
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 14:55:22 UTC
+
+President Trump @POTUS:
+"Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions. All water mines (bombs), if any, will be terminated (we have removed, through detonation, numerous such mines with our great underwater mine sweepers. Iran will complete the immediate removal and/or detonation of any mines that are left, which will not be many!). Ships caught in the Strait due to our amazing and unprecedented Naval Blockade, which will now be lifted, may start the process of “heading home!” Say HELLO to your wives, husbands, parents, and families from me, your favorite President! The enriched material, sometimes referred to as “Nuclear Dust,” which is buried deep underground with virtually collapsed mountains, caused by our powerful B2 Bomber attack 11 months ago, sitting on top of it, will be unearthed by the United States (which, it is agreed, is the only Country, along with China, with the mechanical capability of doing so!), in close coordination and conjunction with the Islamic Republic of Iran, plus the International Atomic Energy Agency, and DESTROYED. No money will be exchanged, until further notice. Other items, of far less importance, have been agreed to. I will be meeting now, in the Situation Room, to make a final determination. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218999
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺 گزارش | «زمین گرد است یا تخت؟»؛ روایت اعدام غلامرضا خانی شکرآب توسط رژیم ایران
+
+▪️نامش، غلامرضا خانی شکرآب بود. اگرچه در گزارش‌های رسمی اطلاعاتی درباره سن او منتشر نشده، اما بر اساس یکی از پست‌هایش در اینستاگرام، هنگام اعدام باید ۳۳ یا ۳۴ ساله بوده باشد؛ او روز ۵ خرداد ۱۴۰۵ به اتهام «جاسوسی برای اسرائیل» اعدام شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-execution-khani-shekarab-gholamreza/8155303.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اصابت پهپاد روسی به ساختمان در رومانی؛ ناتو: از هر وجب خاک خود دفاع می‌کنیم
+</div>
+
+## FarsiVOA — post 218997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق جمهوری اسلامی و آمریکا نزدیک است؟ چه کسی هزینه سیاسی آن را در ایران می‌پردازد؟
+</div>
+
+## FarsiVOA — post 218996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: رژیم ایران باید بپذیرد که هرگز سلاح هسته‌ای نخواهد داشت؛ تنگه هرمز باید فوراً و بدون عوارض باز شود ▪️رئیس جمهوری آمریکا از برگزاری جلسه‌ای اضطراری با مقامات بلندپایه دولت خود در اتاق وضعیت خبر داد و گفت که در آستانه تصمیم‌گیری درباره پرونده…
+</div>
+
+## FarsiVOA — post 218995
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: رژیم ایران باید بپذیرد که هرگز سلاح هسته‌ای نخواهد داشت؛ تنگه هرمز باید فوراً و بدون عوارض باز شود
+
+▪️رئیس جمهوری آمریکا از برگزاری جلسه‌ای اضطراری با مقامات بلندپایه دولت خود در اتاق وضعیت خبر داد و گفت که در آستانه تصمیم‌گیری درباره پرونده مذاکرات با جمهوری اسلامی است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-us-trump-truth-negotiation-nuclear-dust/8155292.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وخامت وضعیت جسمی و مشکلات قلبی زرتشت احمدی راغب فعال مدنی در زندان مرکزی کرج
+</div>
+
+## FarsiVOA — post 218991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، از دیدار با خالد نورالدین، وزیر دفاع مالزی، خبر داد.
+
+او گفت دو طرف بر تعهد خود برای گسترش همکاری‌پذیری نظامی تاکید کردند. پیت هگست گفت او مشتاق است اواخر امسال میزبان وزیر دفاع مالزی در آمریکا باشد.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ: من به اتاق وضعیت کاخ سفید می‌روم تا تصمیم نهایی را درباره جمهوری اسلامی بگیرم
+</div>
+
+## FarsiVOA — post 218989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آزاده مختاری، خبرنگار، با انتشار ویدیویی از جوشش چشمه‌ها در حاشیه دریاچه ارومیه نوشت این پدیده همزمان با ثبت بالاترین تراز دریاچه در یک سال اخیر رخ داده است.
+
+او با اشاره به اینکه این تصاویر امیدوارکننده هستند، تاکید کرد دریاچه ارومیه همچنان تا رسیدن به تراز هدف زیست‌محیطی فاصله قابل توجهی دارد.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر چگونه از کارت مقتدی صدر برای خلع سلاح گروه‌های مسلح وابسته به جمهوری اسلامی در عراق استفاده کرد؟
+</div>
+
+## FarsiVOA — post 218987
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218987_1780077242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس جمهوری آمریکا تاکید کرد که حکومت ایران باید موافقت کند که هرگز سلاح هسته‌ای نخواهد داشت و باید تنگه هرمز را فوراً و بدون دریافت عوارض باز کند.
+پرزیدنت ترامپ همچنین عنوان کرد که از دیگر شرایط توافق با حکومت ایران تحویل «غبار هسته‌ای» از سوی حکومت ایران است و تا اطلاع ثانوی، هیچ پولی مبادله نخواهد شد.
+آقای ترامپ در تروت سوشال نوشت که به اتاق وضعیت خواهد رفت تا تصمیم نهایی را بگیرد و موارد دیگر که از اهمیت بسیار کمتری برخوردارند، مورد توافق قرار گرفته‌اند.
+</div>
+
+## FarsiVOA — post 218984
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، از دیدار با آدول بونتامچاروئن، وزیر دفاع تایلند، خبر داد.
+
+او گفت دو طرف در حال تدوین یک بیانیه مشترک جدید تا پایان سال هستند و همکاری‌های صنعتی دفاعی میان آمریکا و تایلند را بررسی می‌کنند.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ابهام در صدور ویزای آمریکا برای تیم ملی فوتبال ایران
+
+در حالی که دو هفته به آغاز رقابت‌های جام جهانی مانده ظاهرا تیم ملی فوتبال ایران همچنان باید در انتظار صدور ویزای ایالات متحده آمریکا باشد.
+
+ابوالفضل پسندیده، سفیر ایران در مکزیک، روز جمعه هشتم خرداد در جریان بازدید از شهر مرزی تیخوانا در این کشور که قرار شده میزبان کمپ اصلی تیم ملی فوتبال ایران برای حضور در این رقابت‌ها باشد با اعلام این خبر گفت: «شکی نداریم که تیخوانا مکان بسیار خوبی برای هواداران ما خواهد بود.»
+
+پسندیده با اشاره به "کشور شمالی" که به وضوح به ایالات متحده آمریکا اشاره داشت، تاکید کرد که این کشور به مسئولیت خود به عنوان میزبان تیم ایران عمل نکرده است.
+
+در ابتدا قرار بود که تیم ملی ایران اردو و محل اقامت خود را در آریزونای آمریکا بر پا کند ولی بعد از شروع جنگ ایالات متحده و اسرائيل علیه جمهوری اسلامی برنامه‌ها تغییر کرد و اکنون تیخوانا در مکزیک محلی است که قرار است تیم ملی ایران در آن‌جا مستقر شود.
+
+پسندیده با ابراز عدم اطمینان در مورد کسب ویزای آمریکا برای تیم ملی فوتبال ایران گفت، اما فیفا (فدراسیون بین‌المللی فوتبال) تمامی تلاش خود را، هرچند بدون موفقیت، انجام داده تا مطمئن شود که با مانعی روبرو نخواند شد، زیرا آن‌ها تنها تیم از بین ۴۸ تیم دعوت‌شده به جام جهانی ۲۰۲۶ هستند که با مشکل مواحه شده‌اند."
+
+او همچنین ابراز امیدواری کرد که ایرانیان ساکن کالیفرنیا و مکزیک برای تشویق تیم ایران در دور اول بازی در لس‌‌آنجلس و سیاتل مقابل نیوزیلند، بلژیک و مصر حضور داشته باشند.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: برای تصمیم‌گیری نهایی در مورد ایران تشکیل جلسه می‌دهم
+
+دونالد ترامپ، رئیس‌جمهور آمریکا در پستی تازه از تشکیل جلسه‌ای در اتاق وضعیت (Situation Room) کاخ سفید به منظور "تصمیم‌گیری" نهایی درباره توافق با ایران خبر داده است.
+
+در این پست که در شبکه اجتماعی "تروث سوشال" در روز جمعه هشتم خرداد (۲۹ مه) منتشر شده ترامپ موارد مد نظر آمریکا برای توافق با ایران را فهرست کرده است.
+
+طبق این پیام، این موارد شامل موافقت جمهوری اسلامی با عدم توسعه سلاح هسته‌ای، بازگشایی تنگه هرمز، انهدام تمامی مین‌های دریایی کارگذاشته‌شده توسط ایران، لغو محاصره دریایی این کشور توسط ایالات متحده و همچنین خار‌ج‌کردن اورانیوم بسیار غنی‌شده از زیر آوار توسط آمریکا و نابودسازی آن می‌شود.
+
+ترامپ در مورد خروج اورانیوم با غنای بالا نوشت که این مواد "از زیر زمین خارج خواهند شد و توافق شده که آمریکا تنها کشور علاوه بر چین است که توانایی فنی چنین کاری را دارد."
+
+در ضمن، خروج این مواد در "هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران و آژانس بین‌المللی انرژی اتمی انجام خواهد شد."
+
+او ادامه داد: «تا اطلاع ثانوی، هیچ پولی مبادله نخواهد شد. در مورد سایر موارد که از اهمیت بسیار کمتری برخوردار هستند، توافق حاصل شده است.»
+
+خبرگزاری فارس، نزدیک به سپاه در واکنش به پیام تازه ترامپ از قول "منابع آگاه" خبر داد که پیام رئیس جمهور آمریکا درباره توافق احتمالی با ایران، "آمیخته ای از راست و دروغ و تلاشی برای نمایش پیروزیِ ساختگی" است.
+
+فارس در ادامه نوشته است که «متن توافق که تحت قالب "تعهد در برابر تعهد" تدوین شده، در مراحل نهایی تصویب در ایران قرار دارد و هنوز تصمیم قطعی اتخاذ نشده است.»
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 صدور حکم ۱۵ سال زندان برای توطئه حمله به کنسرت تیلور سوئیفت
+
+دادگاه ایالتی وینر نوی‌اشتات متهم اصلی پرونده طرح حمله به کنسرت تیلور سوئیفت در وین را گناهکار شناخت و به ۱۵ سال زندان محکوم کرد. این دادگاه او را در بیش از ۱۲ مورد اتهامی، که بیشتر آن‌ها با تروریسم ارتباط داشت، مجرم دانست. یکی دیگر از متهمان این پرونده نیز به ۱۲ سال زندان محکوم شد.
+
+به گزارش خبرگزاری آلمان، منشأ این پرونده به اوت ۲۰۲۴ بازمی‌گردد؛ زمانی که بران آ.، شهروند اتریشی با ریشه‌های مقدونیه شمالی، به گفته دادستانی قصد داشت به جمعیت حاضر در برابر ورزشگاه ارنست هاپل حمله کند و سپس خودکشی کند.
+
+او برای این منظور، بر اساس آموزش‌های اینترنتی، مقدار کمی از منفجره تهیه کرده بود و تلاش داشت سلاح‌هایی مانند مسلسل و نارنجک دستی خریداری کند.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125287
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125287_1780077242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 دیدار علی باقری با مقام‌های برزیل و مصر در مسکو
+
+علی باقری، معاون سیاست خارجی و امنیت بین‌الملل شورای عالی امنیت ملی ایران در سفر به پایتخت روسیه در دیدارهای جداگانه‌‌ای با مشاور سیاست خارجی رئیس‌جمهور برزیل و دبیرکل شورای امنیت ملی مصر گفت‌وگو کرد.
+
+به گزارش رسانه‌های ایران، باقری در دیدار با سلسو آموریم، مقام یادشده برزیل که در حاشیه چهاردهمین نشست بین‌المللی مقام‌های بلندپایه امنیتی در مسکو برگزار شد، درباره آخرین تحولات منطقه‌ای و بین‌المللی تبادل نظر کرد.
+
+وضعیت غرب آسیا و توسعه همکاری‌های دوجانبه نیز از دیگر موضوعات مطرح‌شده بود.
+
+معاون دبیر شورای عالی امنیت ملی ایران همچنین با یوسف علا‌ء‌الدین، دبیرکل شورای امنیت ملی مصر دیدار و گفت‌وگو کرد.
+
+دو طرف در این دیدار درباره آخرین تحولات منطقه‌ای و بین‌المللی، وضعیت غرب آسیا و چگونگی کمک به تحکیم صلح و ثبات در حوزه پیرامونی تبادل نظر کردند.
+
+به نقل از ایسنا، چهاردهمین کنفرانس بین‌المللی مقامات بلندپایه امنیتی در مسکو از سه‌شنبه تا پنج‌شنبه پنجم تا هفتم خرداد برگزار شد و باقری علاوه بر گفت‌وگو با این مقام‌ها در نشست اصلی نیز شرکت و سخنرانی کرد.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 رومانی پس از حمله روسیه خواستار سامانه‌های ضد پهپادی ناتو شد
+
+اصابت یک پهپاد روسی به یک ساختمان مسکونی در رومانی، از اعضای ناتو و اتحادیه اروپا باعث انتقاد شدید متحدان ائتلاف دفاعی نظامی ناتو از مسکو و ابراز همبستگی با بخارست شد.
+
+به گفته رسانه‌ها، برخورد این پهپاد به این ساختمان در شامگاه منتهی به جمعه ۲۹ مه منجر به زخمی شدن دو نفر شد. طبق اعلام وزارت کشور، جراحات این دو نفر سطحی بود و در محل تحت درمان قرار گرفت.
+
+مارک روته، دبیرکل ناتو در پی این رخداد "حمایت کامل و بی‌قید و شرط" ناتو از رومانی را به نیکوشور دان، رئیس‌جمهور این کشور ابراز کرد. متیو ویتاکر، سفیر آمریکا در ناتو نیز اظهارات مشابهی کرده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جورج مالبرونو خبرنگار فیگارو:
+طبق گفته یک منبع عرب در تماس با میانجی پاکستانی، جرد کوشنر، داماد دونالد ترامپ، مانع از نهایی‌شدن توافق بین واشنگتن و تهران است.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15264
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15264_1780077243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئویی منتشر شده از هدف قرار دادن بیت رهبری توسط موشک های اسرائیلی آمریکایی
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15263
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15263_1780077244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 15262
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15262_1780077245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال استریت ژورنال: امارات متحده عربی از روزهای نخست جنگ، ده‌ها حمله هوایی علیه ایران انجام داده و این حملات تا یک روز پس از اعلام آتش‌بس نیز ادامه یافته است.
+
+این موضوع را افرادی آگاه از ماجرا اعلام کرده‌اند. بر اساس این گزارش، میزان مشارکت امارات در کارزار هوایی تحت رهبری آمریکا و اسرائیل بسیار گسترده‌تر از آن چیزی بوده که پیش‌تر شناخته شده بود.
+
+گستردگی این حملات، شواهد بیشتری از تمایل روزافزون این کشور برای دفاع از آنچه منافع راهبردی خود می‌داند ارائه می‌کند؛ رویکردی که آن را از برخی همسایگانش در منطقه خلیج فارس متمایز کرده است؛ کشورهایی که در قبال تهدید ناشی از ایران، رویکردی بسیار محتاطانه‌تر در پیش گرفته‌اند.
+
+این افراد گفتند که این حملات با هماهنگی آمریکا و اسرائیل انجام شده و هر دو کشور اطلاعات لازم را در اختیار امارات قرار داده‌اند. به گفته برخی از این افراد، اهداف این حملات شامل جزایر قشم و ابوموسی در تنگه هرمز، بندرعباس، پالایشگاه نفت جزیره لاوان در خلیج فارس و مجتمع پتروشیمی عسلویه بوده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15261
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15261_1780077245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/shorts/rI4eO2nPCPY
+</div>
+
+## Persian_Trend_Official — post 15259
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15259_1780077246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت برنت، هم اکنون:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15258
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15258_1780077246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم حکومتی جمهوری اسلامی 0 - 1 گامبیا 🇬🇲
+
+پ.ن: گامبیا کجاست؟ 🤔
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15257
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15257_1780077247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن محمودی، رییس شورای هماهنگی تبلیغات اسلامی، تهران گفت که ستاد آماده برگزاری مراسمی برای تشییع جنازه علی خامنه‌ای است اما زمان مراسم هنوز مشخص نیست و به محض مشخص شدن از موارد مسئول اعلام خواهد شد.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15256
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15256_1780077247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوتین: همین الان از حادثه پهپاد ادعایی روسی در رومانی مطلع شدم!
+
+ولادیمیر پوتین، رئیس‌جمهور روسیه، اعلام کرد که تازه از حادثه مربوط به پهپاد ادعایی روسی در رومانی مطلع شده است. وی افزود: هیچ کس بدون انجام کارشناسی نمی‌تواند درباره تعلق این پهپاد اظهار نظر کند. اولین واکنش اتحادیه اروپا به هر پهپادی این است که آن را روسی بنامد، اما بعداً مشخص می‌شود که اینطور نیست.
+
+پوتین تأکید کرد که اگر داده‌های عینی درباره پهپاد سقوط کرده در رومانی در اختیار روسیه قرار گیرد، این کشور تحقیقات عینی انجام داده و ارزیابی خود را ارائه خواهد داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس از نقل منابع آگاه می‌گوید متن توافق که تحت قالب تعهد در برابر تعهد تدوین شده، در مراحل نهایی تصویب در ایران قرار دارد و هنوز تصمیم قطعی اتخاذ نشده است، تا زمانی که پول های بلوکه شده آزاد نشود وارد مرحله جدید مذاکره نخواهیم شد.
+
+فارس: ادعاهای تازه دونالد ترامپ، رئیس جمهور آمریکا، درباره توافق احتمالی با ایران، اظهارات او را آمیخته ای از راست و دروغ و تلاشی برای نمایش پیروزی ساختگی توصیف کرده اند. به گفته این منابع، تقریباً برای همه روشن شده که این ادعاها فاقد اعتبار است.
+
+بندهای کلیدی توافق که ترامپ از آنها عبور کرده: 1-پرداخت فوری 12 میلیارد دلاری: مهمترین بخش توافق که ترامپ به آن اشاره ای نکرده، شرط پرداخت فوری 12 میلیارد دلار از دارایی های بلوکه شده ایران است. بر اساس متن توافق، این مبلغ باید بلافاصله پرداخت شود و تا زمانی که این پرداخت انجام نگیرد، ایران وارد هیچ مرحله مذاکراتی بعدی نخواهد شد. عدم اجرای این بند، نقض تعهدات آمریکا محسوب می شود.
+
+2-آتش بس در لبنان: موضوع دیگر، برقراری آتش بس کامل در لبنان مطابق با نظر حزب الله است.
+
+به‌گفتهٔ منابع آگاه، تنها در صورت حل این موارد، ایران در مرحله بعد درباره لغو همه تحریم ها و موضوع هسته ای، مطابق با خطوط قرمز خود وارد گفتگو خواهد شد. همزمان با این اظهارات، مقامات ایرانی تأکید کرده‌اند که توافق نهایی مبتنی بر اصول و خطوط قرمز نظام جمهوری اسلامی ایران و با رویکرد بی اعتمادی کامل به آمریکا تنظیم خواهد شد؛ به گونه ای که در صورت هرگونه عهدشکنی، اقدام متقابل فوری انجام شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15254
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15254_1780077248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله لبنان ویدیویی از شلیک موشک کروز قدس به سمت مواضع ارتش اسرائیل در تاریخ 27 می(دو روز پیش)منتشر کرد.
+
+موشک کروز قدس در ایران با ناو پاوه شناخته میشود که دارای بردی 1650 کیلومتری است. حوثی های یمن و مقاومت عراق از دیگر کاربران این موشک هستند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15253
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15253_1780077249.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از پست ترامپ در تروث سوشال، قیمت نفت برنت برای اولین بار پس از 50 روز به زیر 90 دلار در هر بشکه رسید.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15252
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15252_1780077250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران باید موافقت کند که هرگز سلاح هسته‌ای یا بمب اتمی نخواهد داشت. تنگه هرمز باید فوراً و بدون عوارض برای تردد نامحدود کشتی‌ها، در هر دو جهت، باز شود. تمام مین‌های آبی، در صورت وجود، از بین خواهند رفت (ما با مین‌روب‌های زیرآبی بزرگ خود، تعداد زیادی…
+</div>
+
+## Persian_Trend_Official — post 15251
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15251_1780077250.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران باید موافقت کند که هرگز سلاح هسته‌ای یا بمب اتمی نخواهد داشت. تنگه هرمز باید فوراً و بدون عوارض برای تردد نامحدود کشتی‌ها، در هر دو جهت، باز شود.
+
+تمام مین‌های آبی، در صورت وجود، از بین خواهند رفت (ما با مین‌روب‌های زیرآبی بزرگ خود، تعداد زیادی از این مین‌ها را از طریق انفجار حذف کرده‌ایم. ایران بلافاصله عملیات حذف و/یا انفجار هر مین باقی مانده‌ای را که تعدادشان زیاد نخواهد بود، تکمیل خواهد کرد!).
+
+مواد غنی‌شده، که گاهی اوقات به عنوان گرد و غبار هسته‌ای شناخته می‌شوند، که در اعماق زمین با کوه‌های تقریباً فروریخته دفن شده‌اند، ناشی از حمله قدرتمند بمب‌افکن B2 ما در 11 ماه پیش، که روی آن قرار دارد، توسط ایالات متحده با هماهنگی و همکاری نزدیک با جمهوری اسلامی ایران، به علاوه آژانس بین‌المللی انرژی اتمی، از زیر خاک بیرون کشیده شده و نابود خواهند شد.
+
+تا اطلاع ثانوی هیچ پولی رد و بدل نخواهد شد. در مورد سایر اقلام، با اهمیت بسیار کمتر، توافق شده است. من اکنون در اتاق وضعیت جلسه خواهم داشت تا تصمیم نهایی را بگیرم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو، نخست وزیر اسرائیل: نبرد علیه حزب‌الله در شمال در حال مدیریت است و باید به شما بگویم که نتایج بسیار چشمگیری در اینجا حاصل شده است.
+
+نیروهای ما از رود لیتانی عبور کرده‌اند، به منطقه مسلط رسیده‌اند و ما همچنین در بیروت، بقاع و در تمام عرض جبهه در حال فعالیت هستیم و قاطعانه به حزب‌الله ضربه می‌زنیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157700
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157700_1780077251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری رویترز روز جمعه به نقل از یک منبع ایرانی نوشت که بین تهران و واشینگتن یک تفاهم سیاسی صورت گرفته اما هنوز نهایی نشده و همچنین توافق با ایران شامل نابودی مواد هسته‌ای نیست.
+
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا ساعتی پیش اعلام کرد که توافق پایان دادن جنگ باید شامل مواردی مانند تعهد ایران به باز شدن تنگه هرمز و نابودی ذخایر اورانیوم باشد.
+
+🔸منبع ایرانی به رویترز گفته است که تفاهم بین واشینگتن و تهران شامل موضوع هسته‌ای نیست و اظهارات آقای ترامپ درباره نابودی اورانیوم ایران را رد کرده است.
+
+🔸خبرگزاری فارس، نزدیک به سپاه پاسداران، نیز به نقل از یک منبع ایرانی دیگر اظهارنظر رئیس‌جمهور ایالات منحده دربارهٔ توافق احتمالی با ایران، را «آمیخته‌ای از راست و دروغ» خوانده است.
+
+🔸این منبع گفته که در متن توافق بندی درباره باز شدن تنگه هرمز بدون دریافت عوارض وجود ندارد و تفاهم بر سر نابودی دخایر اورانیوم ایران را نیز «بی‌اساس» دانسته است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157699
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157699" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفاهم احتمالی آمریکا و ایران به معنی پایان «نه جنگ، نه صلح» است؟ گفت‌وگو با علی واعظ
+
+🔸علی واعظ، مدیربخش ایران در گروه بین‌المللی بحران در ژنو سوییس ساعتی بعد از اعلام رئیس‌جمهور آمریکا درباره قصدش برای اتخاذ تصمیم نهایی درباره توافق با ایران به رادیوفردا می‌گوید تفاهم میان دو کشور بسیار محتمل است اما دست یافتن به توافق جامع به فاکتورهایی بستگی دارد که دستیابی به آن را دشوارتر می‌کند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157698
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157698" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، هشتم خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیا اسرائیل برای سومین جنگ احتمالی با ایران آماده می‌شود؟
+
+🔸هم‌زمان با تحویل هواپیماهای جدید سوخت‌رسان آمریکایی به ارتش اسرائیل، ستاد پشت جبهه این کشور به رسانه‌ها گفته تدارکاتش برای «سومین جنگ احتمالی» با ایران به‌صورتی ادامه دارد که بتوان جامعه را با بیشترین سرعت برای جنگی دیگر آماده کرد.
+
+🔸در این میان، رسانه‌های اسرائیل «نگرانی» کشورشان از توافق احتمالی آمریکا و ایران را بازتاب داده و نوشته‌اند جنگ اخیر اهداف اسرائیل را محقق نکرد.
+
+🔸افسران ارشد اسرائیل در گفت‌وگوهای هم‌زمان با رسانه‌های این کشور در روز هفتم خرداد، گفتند از مسئولان کشوری و نظامی فرمان گرفته‌اند تا اقدامات لازم برای دفاع از مردم و پشت جبهه اسرائیل را برای سومین جنگ احتمالی با ایران انجام دهند.
+
+🔸به گزارش شبکه کان، افسران یادشده گفتند دستور دارند به‌‎گونه‌ای شرایط را مهیا کنند که جامعه در بخش دفاعی و پشت جبهه مانند یک خودرو بتواند به سرعت از «صفر به صد» برسد.
+
+🔸آن‌ها افزودند برنامه‌ریزی جنگ بعدی باید محرمانه پیش رود و هیچ اطلاعی از آن به عوامل و افرادی در جامعه اسرائیل درز نکند تا بیشترین غافلگیری برای کشور هدف را به همراه داشته باشد.
+
+🔸بر اساس این گزارش، در آن صورت، پشت جبهه اسرائیل نخواهد توانست از قبل به مردم هشداری برای تدارکات و آمادگی بدهد و از این رو، «شرایط باید از حالا به گونه‌ای فراهم شود که در کمترین بازه زمانی بتوان از زندگی عادی روزانه وارد فاز جنگ شدید شد و آماده دفاع بود».
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157696
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157696" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چشم‌انداز دسترسی به اینترنت برای شهروندان ایرانی در گفت‌وگو با اشکان خسروپور
+
+🔸بعد از آنکه دولت در ایران دستور «بازگشایی» اینترنت را صادر کرد و به ۸۸ روز سیاست قطع دسترسی همگانی به اینترنت پایان داد، حالا بخشی از کاربران ایرانی به مدد ابزار مختلف مقابله با فیلترینگ و وی‌پی‌ان به فضای اینترنت جهانی بازمی‌گردند. شورای اطلاع رسانی دولت در بیانیه‌ای که روز هشتم خرداد منتشر کرده یک «اقلیت پرهیاهو» را متهم کرده است که «جلوی دسترسی به اینترنت ایستاد». آیا این رویکرد حاکی از اختلاف در حاکمیت جمهوری اسلامی در زمینه دسترسی به اینترنت است؟ وضعیت کنونی «دسترسی» را چگونه باید توصیف کرد. ارزیابی اشکان خسروپور پژوهشگر سیاست‌گذاری اینترنت در فرانسه را در این زمینه بشنوید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157695
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157695" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در این کافه فردا به صحبت‌های عجیب زینب سلیمانی در مورد شجاعت پدرش، توهین محمدجواد لاریجانی به معاون رییس جمهور آمریکا، دغدغه‌های مسئولین نظام در مورد دفن خامنه‌ای، زندگی و آثار جهانبخش پازوکی و آخرین رویدادهای مربوط به حضور تیم ملی فوتبال ایران در جام جهانی می‌پردازیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## RadioFarda — post 157694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرد که روز جمعه در اتاق وضعیت کاخ سفید جلسه‌ای برگزار خواهد کرد تا تصمیم نهایی درباره توافق با ایران را اتخاذ کند. 🔸او در پستی در شبکه اجتماعی خود، تروث سوشال، مواردی را که باید در توافق احتمالی گنجانده شود، برشمرد…
+</div>
+
+## RadioFarda — post 157693
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157693_1780077253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، اعلام کرد که روز جمعه در اتاق وضعیت کاخ سفید جلسه‌ای برگزار خواهد کرد تا تصمیم نهایی درباره توافق با ایران را اتخاذ کند.
+
+🔸او در پستی در شبکه اجتماعی خود، تروث سوشال، مواردی را که باید در توافق احتمالی گنجانده شود، برشمرد و گفت که ایران باید متعهد شود که سلاح هسته‌ای تولید نکند، تنگه هرمز دوباره باز شود، هرگونه مین دریایی جمع‌آوری شود، محاصره آمریکا علیه ایران لغو گردد و اورانیوم با غنای بالای ایران توسط آمریکا خارج و نابود شود.
+
+🔸رئیس‌جمهور آمریکا در توضیح لغو محاصره دریایی علیه ایران گفت: «کشتی‌هایی که به دلیل محاصره دریایی بی‌سابقه و فوق‌العاده ما در تنگه گرفتار شده بودند -محاصره‌ای که اکنون لغو خواهد شد- می‌توانند روند بازگشت به خانه را آغاز کنند.»
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21031
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21031_1780077253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رائفی پور :
+
+تو جنگ آمریکاییا حتی از آدم فضاییا هم کمک گرفتن و باهاشون به ما حمله کردن ولی بازم نتونسن شکستمون بدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21030
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21030_1780077254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا واقعا به معنای واقعی عقب موندن 😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در کمال تعجب تا الان خبری از جنگ تو جنوب کشور نبوده
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21028
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21028_1780077255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت تنگه هرمز
+کشتی‌ها یکی پس از دیگری لنگر انداختند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21027
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21027_1780077257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مراد ویسی :
+
+من توی زندگیم برای ارتباط با آدما فقط یه معیار دارم، میزان تنفر از جمهوری اسلامی …
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+نبینیم ترامپ شاخ و شونه بکشه اینجا همین الانم باید آمریکا باید فورا ۱۲ میلیارد دلار از دارایی‌های مسدودشده ایران رو آزاد کنه تا مذاکرات ادامه پیدا کنه، و آتش‌بس کامل در لبنان طبق شرایط حزب‌الله هم لازمه.
+
+سریع تر انجام بده شاید مذاکره کردیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21025
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21025_1780077258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس :
+
+ترامپ به زودی درباره مذاکرات با تیمش تصمیمشو میگیره و اعلام میکنه , همچنین یه مقام بالا رده دولت ترامپ گفت ما تعهدات شفاهی از سوی ایران در خصوص مواد هسته‌ای دریافت کرده‌ایم؛ اما مهم‌ترین بخش، مواردی است که در جریان مذاکرات بر سر آن‌ها توافق خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21024
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21024_1780077258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رایگان بدون واریز شرط های فوتبالی ببند از همون اول موجودی 500 هزارتومانه
+❌
+
+
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g8
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 21023
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21023_1780077259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد حرفای ترامپ نفت سقوط آزاد کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک پست :
+
+ترامپ هم اکنون در اتاق وضعیت کاخ سفید هست و قراره تصمیم خودش برای مذاکره با ایران رو بگیره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران باید فوراً هر مینی که باقی مانده را جمع‌آوری یا منفجر کند، که البته تعدادشان زیاد نخواهد بود!). کشتی‌هایی که به دلیل محاصره دریایی بی‌سابقه و شگفت‌انگیز ما در تنگه گیر افتاده بودند، حالا با لغو این محاصره می‌توانند روند حرکت به سمت خانه‌هایشان را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، والدین و خانواده‌هایتان سلام برسانید!
+</div>
+
+## IranianMinds — post 21020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ژنرال محسن رضایی : محاصره دریایی رو برمیداریم‌ ما حالا چه با زبون زور و قدرت و یا چه با مذاکره @IranianMinds
+</div>
+
+## IranianMinds — post 21019
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21019_1780077259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه دونالد ترامپ و اعلام شروط نهایی برای توافق با ایران
+
+دونالد ترامپ با انتشار پستی لیست مطالبات و شروط خود را برای توافق اعلام کرد:
+
+«ایران باید موافقت کند که هرگز سلاح یا بمب هسته‌ای نخواهد داشت. تنگه هرمز باید فوراً برای تردد نامحدود کشتی‌ها در هر دو جهت باز شود و هیچ عوارضی دریافت نشود. تمام مین‌های دریایی (بمب‌ها) در صورت وجود، باید از بین بروند (ما پیش از این، تعداد زیادی از این مین‌ها را با مین‌روب‌های پیشرفته زیردریایی خود منفجر و پاکسازی کرده‌ایم.
+
+ایران باید فوراً هر مینی که باقی مانده را جمع‌آوری یا منفجر کند، که البته تعدادشان زیاد نخواهد بود!). کشتی‌هایی که به دلیل محاصره دریایی بی‌سابقه و شگفت‌انگیز ما در تنگه گیر افتاده بودند، حالا با لغو این محاصره می‌توانند روند حرکت به سمت خانه‌هایشان را آغاز کنند! از طرف من، رئیس‌جمهور محبوبتان، به همسران، شوهران، والدین و خانواده‌هایتان سلام برسانید!
+
+مواد غنی‌سازی شده که گاهی به آن "گرد و غبار هسته‌ای" می‌گویند و در اعماق زمین زیر کوه‌هایی دفن شده که ۱۱ ماه پیش در اثر حمله بمب‌افکن‌های قدرتمند B2 ما عملاً فروریختند، باید توسط ایالات متحده (که توافق شده تنها کشوری است که همراه با چین توانایی مکانیکی انجام این کار را دارد) با هماهنگی و همکاری نزدیک جمهوری اسلامی ایران و آژانس بین‌المللی انرژی اتمی، از زیر زمین خارج و نابود شود.
+
+تا اطلاع ثانوی هیچ پولی رد و بدل نخواهد شد. در مورد موارد دیگر که اهمیت بسیار کمتری دارند نیز توافق شده است. من اکنون در اتاق وضعیت جلسه خواهم داشت تا تصمیم نهایی را بگیرم. از توجه شما به این موضوع سپاسگزارم!»
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21018
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21018_1780077260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مواظب خودتون باشید وقتی وارد اینستا میشید 😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282345
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282345" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست جام جهان‌نما، جمعه ۸ خرداد ۱۴۰۵ این برنامه رادیویی رامی‌توانید هرشب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه۹۴۶۵ کیلوهرتز بشنوید. تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه۵۳۹۵ کیلوهرتز گوش کنید.
+@BBCPersian
+</div>
+
+## BBCPersian — post 282344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس‌جمهور آمریکا، دقایقی پیش اعلام کرد که در اتاق وضعیت جلسه خواهد داشت تا درباره ایران تصمیم نهایی را بگیرد.
+
+او در پستی در شبکه اجتماعی خود تروث سوشال، فهرستی را از خواسته‌هایی که می‌گوید ایران باید برآورده کند، مطرح کرده و گفته است در مورد موضوعات «کم اهمیت‌ت» دیگر توافق حاصل شده است.
+
+آقای ترامپ در ابتدا خواسته اصلی خود را تکرار کرده است: «ایران باید موافقت کند که هرگز به سلاح یا بمب هسته‌ای دست نخواهد یافت.»
+
+او در ادامه خواستار باز شدن تنگه هرمز «در هر دو جهت» و «بدون هیچ عوارضی» شد.
+
+رئیس‌جمهور آمریکا سپس به موضوع مین‌گذاری در تنگه هرمز اشاره کرد و گفت: «تمام مین‌های دریایی (بمب‌ها)، در صورت وجود، از بین خواهند رفت (ما با مین‌روب‌های زیردریایی فوق‌العاده خود، تعداد زیادی از این مین‌ها را از طریق انفجار خنثی کرده‌ایم. ایران بلافاصله عملیات جمع‌آوری ویا انفجار هرگونه مین باقی‌مانده را که تعدادشان زیاد نخواهد بود، تکمیل خواهد کرد.)»
+
+آقای ترامپ در ادامه مژده می‌دهد که پس از توافق، کشتی‌هایی که به دلیل محاصره دریایی آمریکا در تنگه هرمز گرفتار شده‌اند، می‌توانند رهسپار خانه شوند:
+
+«از طرف من، رئیس جمهور محبوبتان، به همسران، شوهران، والدین و خانواده‌هایتان سلام کنید.»
+
+دونالد ترامپ سپس به ذخایر اورانیوم غنی‌شده ایران می‌پردازد و می‌گوید این مواد که بر اثر حمله هوایی ۱۱ ماه پیش آمریکا اکنون در زیر خاک مدفون شده‌اند، توسط آمریکا و با هماهنگی ایران و آژانس بین‌المللی انرژی اتمی از زیر خاک بیرون آورده می‌شود و از بین برده خواهد شد.
+
+رئیس‌جمهور آمریکا سپس تاکید می‌کند که «تا اطلاع ثانوی هیچ پولی رد و بدل نخواهد شد.»
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282343
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282343_1780077261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک موشک «نیو گلن» متعلق به شرکت بلو اوریجین، شامگاه پنج‌شنبه ۷ خرداد، روی سکوی پرتابی در کیپ کاناورال در ایالت فلوریدای آمریکا منفجر شد.
+ 
+این شرکت فناوری فضایی که در سال ۲۰۰۰ توسط جف بزوس، میلیاردر و بنیان‌گذار آمازون تأسیس شده است، اعلام کرد که این حادثه هیچ‌گونه مصدومیتی نداشته است.
+ 
+به گفته مسئولان شرکت، این انفجار در جریان یک ارزیابی پیش از پرواز، موسوم به «آزمایش هات‌فایر» رخ داد و این حادثه به‌عنوان یک «ناهنجاری» توصیف شد.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282342
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282342_1780077263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻سازمان اطلاعات و امنیت دانمارک گفته است که ایران طی یک سال اخیر، نقش پررنگ‌تری در «تهدیدهای تروریستی» علیه آن کشور داشته است.
+
+سرویس اطلاعات و امنیت ملی دانمارک روز جمعه گفت که ماهیت این تهدیدها «به‌طور قابل توجهی تغییر کرده است.»
+
+فین بورخ اندرسن، رئیس این سازمان، در بیانیه‌ای گفت: «در یک سال گذشته، بازیگران دولتی اهمیت بیشتری در تهدید تروریستی پیدا کرده‌اند. بنابر ارزیابی ما، این موضوع به‌ویژه درباره ایران صدق می‌کند، کشوری که تهدیدی را متوجه منافع اسرائیل و یهودی‌ها و همچنین برخی مخالفان ایرانی در اروپا می‌کند، از جمله در دانمارک.»
+
+او اضافه کرد: «تهدیدهایی که از سوی ایران با آن مواجهیم از نهادهای اطلاعاتی این کشور سرچشمه می‌گیرد. همچنین از شبکه‌های جنایی و علاوه بر این، جذب نیروهایی در اروپا که از آنها برای برنامه‌ریزی و اجرای حملات استفاده می‌کند.»
+
+لینک خبر کامل:
+https://bbc.in/4o4wJnC
+📷Getty Images
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282341
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282341_1780077263.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻زنی در شهر پالم بیچ ایالات فلوریدای آمریکا توسط یک افسر پلیس و به ظن در دست داشتن تلفن همراه با دست راست هنگام رانندگی متوقف شد.
+
+کاتلین توماس که دست راستش را از دست داده، بازوی راستش را بالا برد تا نبود دستش را به افسر نشان دهد، اما با این حال برای او پرونده ثبت شد.
+
+این رویداد در ماه فوریه رخ داد و در هفته جاری، این افسر درخواست کرده است که این اتهامات رد شود.
+
+دفتر کلانتر شهرستان پالم بیچ به بی‌بی‌سی اعلام کرد: «معاون بر اساس مشاهده بصری اقدام به توقف خودرو کرد. پس از بررسی‌های بیشتر و به دلیل نبود شفافیت در نحوه ثبت تخلفات در نرم‌افزار صدور جریمه، در نهایت تصمیم به لغو اتهامات گرفته شد.»
+https://bbc.in/42ZkFdA
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282340
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282340_1780077265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻محمدباقر قالیباف، رئیس مجلس شورای اسلامی و مذاکره‌کننده ارشد جمهوری اسلامی در پیامی که در شبکه اجتماعی ایکس منتشر کرده، نوشته است: «ما امتیازات را نه با گفت‌وگو، بلکه با موشک‌‌ها می‌گیریم، در مذاکره فقط آن‌ها را تفهیم می‌کنیم.»
+
+او به موضوع اعتماد میان دو طرف در مذاکرات جاری با آمریکا اشاره کرده و نوشته است: «اعتمادی به تضمین‌ها و حرف‌ها نداریم، فقط رفتارها معیار است. هیچ اقدامی پیش از اقدام طرف مقابل انجام نخواهد شد.»
+
+آقای قالیباف در ادامه پیامش آورده است:«پیروز هر توافقی کسی است که از فردای آن، بهتر برای جنگ آماده شود.»
+
+محمدباقر قالیباف دوشنبه به قطر رفته بود.
+
+هدف از این سفر مذاکره بر سر برخی از دارایی‌های ایران بود که به دلیل تحریم‌های ایالات متحده مسدود شده است.
+
+📷 ICANA News Agency via Getty Images
+https://bbc.in/3RQ4kFC
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حمله پهپادی به یک کشتی ترکیه در دریای سیاه
+
+🔻پس از آن‌که یک کشتی ترکیه در طول شب گذشته هدف حمله پهپادی قرار گرفت، این کشور نسبت به خطرات تشدید کنترل‌نشده تنش‌ها در منطقه دریای سیاه هشدار داد.
+
+وزارت خارجه ترکیه مشخص نکرده است که کدام کشور مسئول این حمله بوده است.
+
+در جریان جنگ روسیه و اوکراین، هر دو طرف کشتی‌هایی را در دریای سیاه هدف قرار داده‌اند.
+
+https://bbc.in/4fJezFG
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390504
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390504_1780077265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ریمیکس الان ارزش ترند شدنو داره؛
+دست به دست بکنید برسه به دست ترامپ:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونم به تخمتونه و متأسفانه رعایت نمیکنید فقط خواستم بگم جمعه عدهٔ شرعی آذر تموم میشه.
+
+یعنی اینکه امروز ۸ خرداد ۱۴۰۵ جمعه، کص زن شمخانی از اسارت شرعی در میاد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390502
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390502_1780077267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا چه عجله‌‌ای هست برای ادامه‌ی جنگ. اصلا یه ۱۰ سالی طول بکشه چه اشکالی داره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390501
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390501_1780077267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی منتظری مسخره بازیای ترامپ تموم بشه و بزنی بقیشون رو کتلت کنی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390500
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/390500" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390499
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390499_1780077268.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390498
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390498_1780077268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شت
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390492
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390492_1780077269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشم‌ریزون‌ترین چیزی که امروز دیدم
+
+پهلون شمسی و پهلون اقدس تا حالا دیده بودید!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390491
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390491_1780077270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مطمئنم عمو مراد «از این کسشرا»رو جا انداخت نگفت بعد ادامه داد:
+"مفضّله! خيلى مفضّله!"
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390490
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390490_1780077271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#قیمت سرویس های بادبان به گیگی 10 هزار تومان رسید بعد ایموجی موشک🚀
+💥
+
+🎁 کد تخفیف خرید اول دوباره ریست شد و همه میتونن ازش استفاده کنن:
+BadBanOFF
+
+💸 با این کد، 50 هزار تومان تخفیف روی اولین خریدت بگیر!
+
+🔥و مهم‌تر از همه...
+سیستم معرفی بادبان فعال‌تر از همیشه‌ست!
+از تمام خریدهای کاربرانی که معرفی میکنی، 10% خریدشون رو پورسانت دائمی دریافت کن و موجودی کیف پولت رو افزایش بده 💼
+
+وقتی بادبان داری، هیچ بادی مانع نیست… حتی وقتی اینترنت ملیه⛵️
+G8
+🛡@BadBan_VPN | کانال 
+🤖@BadBan_VPNBot | ربات 
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 390488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان، شیر خدا لحظاتی پیش پست زیر رو در تروث‌سوشال منتشر کرد و نوشته داره می‌ره ‌ اتاق وضعیت تا تصمیم نهایی رو در باره‌ی امضای تفاهم با روافض قحبه بگیره: «روافض قحبه‌زاده باید قبول کنه که هیچ‌وقتِ هیچ‌وقت صاحب سلاح یا بمب هسته‌ای نمیشه. تنگه‌ی هرمز باید…
+</div>
+
+## Dirty_Kids — post 390487
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390487_1780077272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان،
+
+شیر خدا لحظاتی پیش پست زیر رو در تروث‌سوشال منتشر کرد و نوشته داره می‌ره ‌ اتاق وضعیت تا تصمیم نهایی رو در باره‌ی امضای تفاهم با روافض قحبه بگیره:
+
+
+«روافض قحبه‌زاده باید قبول کنه که هیچ‌وقتِ هیچ‌وقت صاحب سلاح یا بمب هسته‌ای نمیشه.
+
+تنگه‌ی هرمز باید فوراً باز شه، بدون هیچ باج و عوارضی، تا رفت‌و‌آمد کشتی‌ها توی هر دو مسیر کاملاً آزاد باشه.
+
+همه مین‌های دریایی اگه چیزی باقی مونده باشه، باید جمع شن (ما خودمون کلی از این مین‌ها رو با اون مین‌روب‌های فوق‌العاده زیردریایی‌مون منفجر و نابود کردیم. روافض جاکش هم خودش کار جمع‌آوری فوری و یا منفجر کردن بقیه مین‌های باقیمونده رو تموم ‌کنه، که البته چیز زیادی هم باقی نمونده)
+
+کشتی‌هایی که به خاطر محاصره دریایی بی‌سابقه و معرکه‌ ما توی تنگه گیر کرده بودن ،محاصره‌ای که حالا دیگه برداشته میشه، می‌تونن کم‌کم شال‌وکلاه کنن و راهی خونه‌شون شن. رفتید از طرف من، یعنی رئیس‌جمهور محبوبتون، به همسرا، پدر و مادرها و خانواده‌هاتون سلام برسونید.
+
+مواد غنی‌شده که بعضی‌وقت‌ها بهش می‌گن گرد و خاک هسته‌ای و اون زیر کوه‌هایی دفن شدن که ۱۱ ماه پیش با حمله بمب‌افکن‌های قدرتمند بی‌۲ ما عملاً روی سر اورانیوم‌های غنی‌شده آوار شدن، قراره توسط ایالات متحده (که توافق شده تنها کشوریه که در کنار چین، توانایی فنی و مکانیکی انجام این کار رو داره) با هماهنگی و همکاری نزدیک رژیم مادرخراب روافض و آژانس بین‌المللی انرژی اتمی بیرون کشیده و نابود بشه.
+
+تا اطلاع ثانوی هیچ پولی رد و بدل نمیشه.
+
+روی موارد دیگه‌ای هم که اهمیت خیلی کمتری دارن، توافق شده.
+من الان دارم می‌رم اتاق وضعیت تا تصمیم نهایی رو بگیرم.
+
+ممنون از توجهتون به این موضوع!
+
+رئیس‌جمهور دونالد جی. ترامپ یلِ گاینده‌ی خاک‌سفید»
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390483
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390483_1780077272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چرا اینشکلی شده؟
+
+عکس وایرال شده از ظاهر جدید و عجیب نگار جواهریان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390482
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390482_1780077272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پربازدیدترین کلیپ اینستاگرام فارسی تو ۲۴ ساعت اخیر با ۱۵ میلیون بازدید!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهرستان مهرستان؛ ۲ شهروند توسط ماموران اداره اطلاعات بازداشت شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – روز گذشته، محسن دهانی و احسان دهانی دو برادر اهل شهرستان مهرستان توسط نیروهای اداره اطلاعات در این شهرستان #بازداشت و به مکان نامعلومی منتقل شدند.
+
+ادامه مطلب
+
+#محسن_دهانی
+#احسان_دهانی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113225
+
+<div align="center">
+  <img src="telegram/content/Hranews_113225_1780077273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در هفته‌ای که گذشت؛ نگاهی به گزارشات محیط زیستی در ایران
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حق بر #محیط_زیست و مبانی فلسفی آن، از قواعد حقوق بشر و حقوق طبیعی نشأت گرفته شده است. ابتدایی ترین حق طبیعی انسان در این کره خاکی، «#حق_حیات» است. اما طی دهه‌های اخیر به دلیل استفاده بی‌رویه از منابع طبیعی، عدم نظارت و توجه به مباحث زیست محیطی و الگوهای صحیح، محیط زیست طبیعی به‌شدت آسیب دیده است. گزارش پیش رو حاصل ثبت ۷۳ گزارش محیط زیستی ایران است که در هفته‌ اخیر منتشر و به هدف آگاه‌سازی گردآوری شده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، در هفته‌‌ای که گذشت لاشه هشت قلاده فوک خزری کشف شد. همچنین، بیش از ۳۱ شکارچی و صیاد غیرمجاز و قاچاقچی چوب بازداشت و به مراجع قضایی معرفی شدند. افزون بر این، بر اساس گزارشات منتشر شده، بیش از ۱۴.۷ تن چوب قاچاق کشف و ضبط شد. از سوی دیگر، شاخص کیفی هوا دستکم در ۲۱ شهر ناسالم و خطرناک اعلام شد. از دیگر اخبار مرتبط با محیط زیست میتوان به بحران خشکسالی، پسماندها و آلاینده‌ها در مناطق مختلف اشاره کرد؛ در گزارش پیش رو به برخی از آنها پرداخته شده است.
+
+آسیب رسانی به جنبه های مختلف محیط زیست در ایران کماکان ادامه دارد. از طرفی شهروندانی وجود دارند که به دلیل عدم آموزش یا نیازهای مالی دست به تخریب و آسیب رسانی به محیط زیست می زنند و از سوی دیگر نهادهای متولی در تلاش هستند تا از حجم این آسیب ها بکاهند، هر چند این تلاش ها قابل تقدیر است اما به نظر نمی آید میزان آن با شرایط محیط زیستی ایران تطبیق داشته باشد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113224
+
+<div align="center">
+  <img src="telegram/content/Hranews_113224_1780077274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حال نامساعد لیندزی فورمن در یازدهمین روز از اعتصاب در بند زنان زندان اوین
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – لیندزی فورمن، شهروند بریتانیایی محبوس در زندان اوین، یازدهمین روز #اعتصاب خود را در این زندان سپری می‌کند. این زندانی با شرایط جسمی نامناسبی از جمله، کاهش وزن، افت قند خون و نوسانات فشار خون روبه‌رو شده است. همچنین، عدم امکان برقراری تماس وی با خانواده خود، منجر به افزایش نگرانی نزدیکان و خانواده او شده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، لیندزی فورمن یازدهمین روز اعتصاب خود را در زندان اوین سپری می‌کند.
+
+یک منبع مطلع در گفت‌وگو با هرانا اعلام کرد: خانم فورمن در حالی یازدهمین روز اعتصاب غذای خود را پشت سر می‌گذارد که وضعیت جسمانی او نگران‌کننده است. وی دچار افت شدید قند خون (زیر ۹۰)، کاهش وزن قابل توجه (حدود هشت کیلوگرم از آغاز اعتصاب)، و افت فشار خون (۶ روی ۹) شده است. همچنین علائمی مانند سرگیجه، تهوع، دردهای طولانی‌مدت شکمی و رنگ‌پریدگی غیرعادی در او مشاهده می‌شود.
+این منبع افزود: در این وضعیت، هیچ یک از مسئولین مربوطه به دیدار او نیامده است و همچنین سفارت بریتانیا نیز واکنشی به شرایط وی نشان نداده است. از سوی دیگر، محرومیت از امکان استفاده تلفن زندان باعث شده است که خانواده وی اطلاعی از وضعیت او کسب نکنند. امری که منجر به افزایش نگرانی‌های نزدیکان و خانواده این زندانی شده است.
+
+ادامه مطلب
+
+#لیندزی_فورمن
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113223
+
+<div align="center">
+  <img src="telegram/content/Hranews_113223_1780077274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از جرم «جاسوسی» تا جرم‌انگاری «قصد همکاری»/ #مریم_عابدی
+
+
+📡
+📡
+📡
+📡
+📡– جرایم علیه امنیت ملی همواره در شمار حساس‌ترین و شدیدترین حوزه‌های حقوق کیفری قرار گرفته‌اند. در تمامی نظام‌های حقوقی، دولت‌ها حفاظت از اسرار، اطلاعات طبقه‌بندی‌شده، تاسیسات حیاتی و ساختارهای امنیتی را از عناصر بنیادین بقای سیاسی و حاکمیتی خود تلقی می‌کنند و از همین‌رو، جرم جاسوسی به‌عنوان یکی از مهم‌ترین جرایم علیه امنیت خارجی کشورها شناخته می‌شود. به این دلیل، اهمیت امنیت ملی هرگز به معنای نفی اصول بنیادین حقوق کیفری نیست؛ اصولی که بر پایه‌ی «قانونی بودن جرم و مجازات»، «تفسیر مضیق قوانین کیفری»، «لزوم وجود رفتار مادی مجرمانه» و «ممنوعیت مجازات افکار و نیات صرف» استوار شده‌اند.
+
+در حقوق کیفری ایران، جرایم مرتبط با جاسوسی عمدتاً در فصل اولِ کتاب پنجم قانون مجازات اسلامی، ذیل عنوان «جرایم علیه امنیت داخلی و خارجی کشور» پیش‌بینی شده‌اند. مهم‌ترین مقررات در این زمینه را می‌توان در مواد ۵۰۱، ۵۰۵، ۵۰۸ و برخی مقررات پراکنده‌ی مرتبط با همکاری با دولت‌های متخاصم مشاهده کرد.
+
+بر اساس ماده‌ی ۵۰۱ قانون مجازات اسلامی و تعزیرات: «هر کس نقشه‌ها یا اسرار یا اسناد و تصمیمات راجع به سیاست داخلی یا خارجی کشور را عالماً و عامداً در اختیار افرادی که صلاحیت دسترسی به آن‌ها را ندارند قرار دهد یا از مفاد آن مطلع کند، به نحوی که متضمن نوعی جاسوسی باشد، به حبس محکوم می‌شود.»
+
+هم‌چنین ماده‌ی ۵۰۸ مقرر می‌دارد: «هر کس یا گروهی با دول خارجی متخاصم، به هر نحو علیه جمهوری اسلامی ایران همکاری نماید، در صورتی که محارب شناخته نشود، به یک تا ده سال حبس محکوم می‌شود.»
+
+در ساختار سنتی حقوق کیفری ایران، همانند بسیاری از نظام‌های حقوقی کلاسیک، تحقق جرم امنیتی مستلزم وجود عنصر مادی مشخص و عینی بود؛ بدین معنا که صرف گرایش ذهنی، تمایل سیاسی یا حتی قصد ارتکاب جرم، بدون ظهور خارجی و ورود به مرحله‌ی اجرا، اصولاً برای تحقق جرم کافی تلقی نمی‌شد. به بیان دیگر، حقوق کیفری تا زمانی که رفتار مرتکب وارد عرصه‌ی اجتماعی نشده و خطری واقعی علیه امنیت عمومی ایجاد نکرده باشد، حق مداخله‌ی کیفری پیدا نمی‌کند.
+
+
+ادامه مطلب
+
+ادامه مطلب در وبسایت خط صلح
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123549
+
+<div align="center">
+  <a href="telegram/content/alonews_123549_1780077275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جورج مالبرونو خبرنگار فیگارو: طبق گفته یک منبع عرب در تماس با میانجی پاکستانی، جرد کوشنر، داماد دونالد ترامپ، مانع از نهایی‌شدن توافق بین واشنگتن و تهران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123548
+
+<div align="center">
+  <a href="telegram/content/alonews_123548_1780077275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروسی، مدیر کل آژانس بین‌المللی انرژی اتمی : توافق ایران و آمریکا خبرِ خوبیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123547
+
+<div align="center">
+  <a href="telegram/content/alonews_123547_1780077275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسماعیل بقایی : مدیریت تنگه هرمز باید بین ایران و عمان تعیین شه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123546
+
+<div align="center">
+  <a href="telegram/content/alonews_123546_1780077275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری صداوسیما: ایران هنوز متن ۱۴ بندی ادعایی رسانه‌ها را برای آمریکا ارسال نکرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123545
+
+<div align="center">
+  <a href="telegram/content/alonews_123545_1780077275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری از خاتمه نشست ترامپ با همکارانش در کاخ سفید  در خصوص ایران خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123544
+
+<div align="center">
+  <a href="telegram/content/alonews_123544_1780077276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت امور خارجه: با «زبانِ باید»، ۴۷ سال پیش خداحافظی کردیم
+
+
+🔴هیچ یک از طرف‌های غربی که وقتی درباره ایران صحبت می کنند، نباید از باید استفاده کنند؛ ما بر اساس منافع ملت ایران تصمیم می گیریم.
+
+
+🔴بایدهایی که آمریکایی‌ها مطرح می‌کنند، در واقع خواهش می‌کنیم است؛ تبادل پیام‌ها ادامه دارد و تفاهم هنوز نهایی نشده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123543
+
+<div align="center">
+  <a href="telegram/content/alonews_123543_1780077276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ایرانی به «رویترز»: عملا به تفاهم سیاسی با آمریکا دست‌یافتیم اما نیاز به نهایی‌شدن دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123542
+
+<div align="center">
+  <a href="telegram/content/alonews_123542_1780077276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: تاکنون تفاهمی با آمریکا نهایی نشده است
+
+
+🔴در این مرحله بر خاتمه جنگ متمرکز هستیم و درمورد جزئیات برنامه هسته‌ای مذاکره‌ای نداریم
+
+
+🔴بقایی درباره ادعایِ از بین بردن مواد هسته‌ای توسط ترامپ: در این مرحله تمرکز ما بر خاتمه جنگ است و درباره جزئیات غنی‌سازی و اورانیوم غنی‌شده، صحبتی نداریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123541
+
+<div align="center">
+  <a href="telegram/content/alonews_123541_1780077276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رضایی نماینده مجلس: مخالف تعلیق غنی سازی یا اعطای مواد هسته‌ای به اسرائیل و آمریکا هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123540
+
+<div align="center">
+  <a href="telegram/content/alonews_123540_1780077276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: امارات متحده عربی ده‌ها حمله را با هماهنگی آمریکا و اسرائیل انجام داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123539
+
+<div align="center">
+  <a href="telegram/content/alonews_123539_1780077277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال استریت ژورنال: افراد آشنا با این موضوع گفتند که امارات متحده عربی از روزهای اولیه جنگ ده‌ها حمله هوایی علیه ایران انجام داد که تا روز پس از اعلام آتش‌بس ادامه داشت، دخالتی عمیق‌تر از آنچه قبلاً در کمپین هوایی به رهبری ایالات متحده و اسرائیل شناخته شده بود.
+
+
+🔴گستردگی این حملات گواه دیگری بر تمایل روزافزون این کشور برای محافظت از آنچه منافع استراتژیک خود می‌داند، است و آن را از برخی از همسایگانش در منطقه خلیج فارس که رویکردی بسیار محتاطانه‌تر نسبت به تهدید ایران اتخاذ کرده‌اند، متمایز می‌کند.
+
+
+🔴این افراد گفتند که این حملات با هماهنگی ایالات متحده و اسرائیل انجام شده است که هر دو اطلاعات ارائه داده‌اند. برخی از این افراد گفتند که این حملات شامل اهدافی در جزایر قشم و ابوموسی در تنگه هرمز؛ بندرعباس، پالایشگاه نفت در جزیره لاوان در خلیج فارس و مجتمع پتروشیمی عسلویه بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123538
+
+<div align="center">
+  <a href="telegram/content/alonews_123538_1780077277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 مدیرکل آژانس بین‌المللی انرژی اتمی پیشنهاد داد که قزاقستان اورانیوم غنی‌شده ایران را نگه‌داری کند
+
+
+🔴به گفته گروسی، قزاقستان آماده است در صورت حصول توافق بین آمریکا و ایران، ذخایر اورانیوم غنی‌شده ایران را نگه‌داری کند.
+
+
+🔴رافائل گروسی، رئیس آژانس بین‌لمللی انرژی اتمی، در گفتگو با فایننشال تایمز گفت که قاسم‑ژومارت توکایف، رئیس‌جمهور قزاقستان، این پیشنهاد را در دیداری که این هفته در آستانه داشتند، به او منتقل کرده است.
+
+
+🔴قزاقستان میزبان بانک بین‌المللی اورانیوم با غنای پایین است تا تأمین سوخت نیروگاه‌ها در کشورهای عضو آژانس بین‌المللی انرژی اتمی تضمین شود و از اشاعه هسته‌ای جلوگیری گردد.
+
+
+🔴گروسی گفت: «ما محلی داریم که این [اورانیوم غنی‌شده ایران] می‌تواند با خیال راحت در آن ذخیره شود»، پیشنهادی که به اعتقاد او هم ایران و هم آمریکا می‌توانند آن را بپذیرند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123537
+
+<div align="center">
+  <a href="telegram/content/alonews_123537_1780077277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم به نقل از منابع ایرانی: اصرار ترامپ بر عدم آزادسازی دارایی‌های مسدود شده، تردیدهای تهران را در مورد جدیت واشنگتن افزایش می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123536
+
+<div align="center">
+  <a href="telegram/content/alonews_123536_1780077277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین : اوضاع توی میدون جنگ جوریه که روسیه می‌تونه بگه این درگیری داره کم‌کم به آخرش نزدیک می‌شه
+
+
+🔴حرف بعضی سیاستمدارهای اروپایی که می‌گن دارن خودشون رو برای جنگ با روسیه آماده می‌کنن، کاملاً چرته
+
+
+🔴روسیه هیچ‌وقت هیچ نیت تهاجمی علیه کشورهای اروپایی نداشته
+
+
+🔴روسیه برای مذاکرات درباره اوکراین آماده‌ست و از اون صرف‌نظر نکرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123535
+
+<div align="center">
+  <a href="telegram/content/alonews_123535_1780077277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین، رئیس جمهور روسیه : ما باید سیستم دفاع هوایی رو تقویت کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123534
+
+<div align="center">
+  <a href="telegram/content/alonews_123534_1780077279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت استثنایی و کیفیت بالا
+❤️
+
+تحویل زیر یک دقیقه
+✅
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+
+از رباتمونم میتونید تهیه کنید 
+💞
+👇
+
+✅
+➡️ @Napsternetiran_bot 
+☑️
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+چنل کانالمون
+👇
+
+📣
+➡️ @Napsternetvirani 
+☑️
+</div>
+
+## alonews — post 123533
+
+<div align="center">
+  <a href="telegram/content/alonews_123533_1780077279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پوتین درباره حمله پهپادی در رومانی: هیچ‌کس نمی‌تواند منشاء پهپاد را قبل از بررسی لاشه آن ادعا کند. 
+🔴به هر حال، ما می‌دانیم که پهپادهای اوکراینی به فنلاند، لهستان و جایی در کشورهای بالتیک پرواز کرده‌اند. 
+🔴واکنش اولیه دقیقاً همان بود که اکنون در رومانی است…
+</div>
+
+## alonews — post 123532
+
+<div align="center">
+  <a href="telegram/content/alonews_123532_1780077279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی هاشم خبرنگار الجزیره: یک منبع مطلع به من گفت که پست دونالد ترامپ در شبکه اجتماعی «تروث سوشال» درباره لغو محاصره بنادر ایران، در واقع اولین شرط پیش از برداشتن گام‌های بعدی در مسیر تفاهم بوده است.
+
+
+
+🔴به گفته این منبع، طرف ایرانی بر اعلام رسمی و عمومی این موضوع در وهله نخست پافشاری کرده است. به نظر می‌رسد ترامپ این موضوع را امری فرعی قلمداد کرده، در حالی که تهران آن را گامی کلیدی برای ایجاد اعتماد پیش از ورود به پرونده‌های حساستر می‌بیند.
+
+
+🔴تا کنون، هیچ بحث مستقیمی درباره خود پرونده هسته‌ای صورت نگرفته است. انتظار می‌رود این فرآیند به تدریج و از طریق یک یادداشت تفاهم (MOU) پیش برود، به گونه‌ای که هر گامی با یک اقدام متقابل همراه باشد.
+
+
+🔴همین منابع می‌گویند انتظار می‌رود اعلام آتش‌بس بین حزب‌الله و اسرائیل نیز به عنوان بخشی از چارچوب گسترده‌تری که در حال شکل‌گیری است، انجام شود.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123531
+
+<div align="center">
+  <a href="telegram/content/alonews_123531_1780077280.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ناتو: اوایل صبح امروز، یک ساختمان آپارتمانی در رومانی توسط یک پهپاد روسی هدف قرار گرفت 
+🔴ما بی‌مبالاتی روسیه را محکوم می‌کنیم 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123530
+
+<div align="center">
+  <a href="telegram/content/alonews_123530_1780077280.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس به نقل از مقامات ایرانی: این توافق به نحوی تدوین خواهد شد که در صورت نقض آن توسط آمریکا، امکان اقدامات متقابل فوری فراهم شود.
+
+
+🔴 توافق نهایی بر اساس خطوط قرمز ایران و بی‌اعتمادی به آمریکا تدوین خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 17:51
 ---
 
