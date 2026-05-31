@@ -7,6 +7,342 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 02:19
+---
+
+## VahidOOnLine — post 243122
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243122_1780267794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش آذربایجان آنلاین، در پی بارش‌های مناسب ماه‌های اخیر، سطح آب تالاب «قوری‌گول» به وضعیت مطلوب رسیده و شرایط زیستگاهی این منطقه نسبت به سال‌های گذشته بهبود چشمگیری یافته است. بر اساس این گزارش، توسعه نیزارها و افزایش امنیت این زیستگاه طبیعی در آذربایجان شرقی، موجب احیای تدریجی تالاب و بازگشت گونه‌های ارزشمند، کمیاب و مهاجر شده است. رویدادی امیدوارکننده که تاثیر مستقیم و مثبت بارندگی‌ها را بر زیست‌بوم منطقه نشان می‌دهد. در همین راستا، حضور پرندگان شاخصی مانند فلامینگو و اردک سرسفید که از مهم‌ترین نشانه‌های سلامت زیست‌بوم تالاب‌ها به شمار می‌روند، در قوری‌گول ثبت شده است. همچنین در ماه‌های اخیر پرندگان دیگری نظیر آنقوت، چنگر، چوب‌پا و درنا نیز در این پهنه آبی مشاهده شده‌اند که تاییدی بر افزایش تنوع زیستی و بهبود شرایط طبیعی منطقه است. تالاب قوری‌گول از مهم‌ترین زیستگاه‌های پرندگان مهاجر در شمال‌غرب ایران محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243121
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243121_1780267795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، یکشنبه‌شب، ۱۰ خردادماه، از شنیده‌شدن صدای انفجار در محله باغ ابریشم کرمانشاه خبر داد. سازمان آتش نشانی کرمانشاه اعلام کرد: «وقوع یک حادثه ناشی از انفجار گاز در محله باغ ابریشم باعث ایجاد آتش‌سوزی در یک واحد مسکونی و سرایت آن به ساختمان‌ مجاور شد که ۲ مجروح برجا گذاشت». فارس همزمان از «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه تهران خبر داده بود که دست‌کم ۴ نفر در آن مجروح شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243120
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243120_1780267795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «امتداد»، مسعود پیاهو، عکاسی که تصویر نشستن یک معترض مقابل نیروهای سرکوب جمهوری اسلامی را در دی‌ماه ۱۴۰۴ ثبت کرده بود، به «همکاری با اسرائیل» متهم و به «۱۰ سال حبس» محکوم شد؛ حکمی که در شعبه ۹ دیوان تایید شده و به اجرای احکام رفته است. براساس اعلام حسن آقاخانی، وکیل مسعود پیاهو، او این فیلم کوتاه را به صورت ناخودآگاه ضبط کرده و بدون قصد انتشار، صرفا برای تعداد محدودی از دوستانش در روایتگر خصوصی اینستاگرام منتشر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342465
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342465_1780267796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Our community will resist again."
+
+Los Angeles Mayor Karen Bass warned that she and her city's residents are ready to oppose federal immigration enforcement if the Trump administration attempts widespread operations during the World Cup.
+
+Bass, who is facing a challenge in the mayoral election from Spencer Pratt, pledged her support for Los Angeles residents regardless of who they are or why they're in the city.
+
+Last year, ICE raids in Los Angeles sparked riots across the city.
+</div>
+
+## pm_afshaa — post 91976
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91976_1780267797.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز:
+رئیس‌جمهور ایران، درخواست استعفا داده و دلیلش رو این عنوان کرده که عملاً اختیار و نفوذ کافی در ساختار حاکمیت نداره؛ اون به دفتر رهبری اعلام کرده که خودش و دولتش از تصمیم‌گیری‌های مهم کنار گذاشته شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339950
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339950_1780267798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن هاشمی رفسنجانی، عضو حزب کارگزاران سازندگی، با لحنی توهین‌آمیز، دونالد ترامپ را «گاو خشمگین» نامید و گفت باید راهی پیدا کرد که او صدمه بیشتری به ایران نزند. او افزود اگر توافق‌نامه‌ای به نفع جمهوری اسلامی نباشد، بعدا ما هم آن را پاره می‌کنیم و خواستار مذاکرات تازه‌ای می‌شویم.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339949
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339949" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: استعفای پزشکیان؛ شکاف در راس نظام
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339948_1780267799.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تجربه صربستان و برکناری و مرگ میلوسویچ پس از جنگ کوزوو، نشان داد که شکست‌های نظامی می‌توانند پایه‌های حکومت‌های دیکتاتوری را متزلزل و اختلافات داخلی آنها را تشدید کنند. وضعیت کنونی جمهوری اسلامی نیز نتیجه فعال شدن بحران‌های مختلف پس از جنگ‌ها و تشدید شکاف‌های درونی در راس نظام را نشان می‌دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339947
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339947_1780267800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج ماه پس از کشته‌شدن ده‌ها هزار نفر در جریان انقلاب ملی در دی‌ماه، شماری از ایرانیان در لس‌آنجلس گردهم آمدند تا یاد جان‌باختگان را گرامی بدارند.
+
+شرکت‌کنندگان همچنین بر جایگاه پرچم شیر و خورشید به‌عنوان نمادی از همبستگی و اتحاد میان ایرانیان تاکید کردند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال و گفت‌وگو با راحله امیری، از آسیب‌دیدگان چشمی جنبش «زن، زندگی، آزادی» و یکی دیگر از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 339946
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339946_1780267802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش اختصاصی ایران‌اینترنشنال به نقل از یک منبع آگاه نشان می‌دهد مسعود پزشکیان با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای خواستار کناره‌گیری فوری از سمت خود شده است.
+
+او در این نامه تاکید کرده دولت و شخص رییس‌جمهور در عمل از روند تصمیم‌گیری‌های کلان کشور کنار گذاشته شده‌اند و ادامه مسئولیت در این شرایط ممکن نیست.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 219216
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219216_1780267803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های جمهوری اسلامی وقوع دو انفجار را که تقریبا هم‌زمان در تهران و کرمانشاه و در ساعات پایانی یکشنبه گزارش شد به نشت گاز نسبت دادند. سایت تسنیم، نزدیک به سپاه پاسداران اعلام کرد که در ساعات پایانی روز یکشنبه، «انفجار گاز» در محله باغ ابریشم کرمانشاه باعث مصدومیت ۲ نفر شد. این سایت‌ همچنین مدعی شد که انفجار در یک واحد مسکونی در «فاز یک اندیشه» در استان تهران ناشی از «نشت گاز» بوده است. خبرگزاری ایسنا به نقل از سخنگوی اورژانس استان تهران می‌گوید این انفجار تاکنون ۶ مصدوم بر جای گذاشته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219214
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219214" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری یکشنبه ۱۰ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## IranianMinds — post 21162
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21162_1780267804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین طاهری، مداح:
+
+اگر مذاکره می‌کنید، اگر توافق می‌کنید، اگر جنگ هست ، به ما نتیجشو بگید که ما حداقل تکلیف خودمونو توی خیابونا بدونیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282517
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282517_1780267806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+امانوئل مکرون، رئیس‌جمهور فرانسه، روز یکشنبه گفت که «هیچ چیز تشدید عمده تنش در جنوب لبنان را توجیه نمی‌کند».
+
+این اظهارات آقای مکرون بعد از آن بیان شد که نیروهای اسرائیلی حمله جدیدی را به جنوب لبنان آغاز کردند.
+
+پس از تصرف قلعه تاریخی شقیف (بوفور)، توسط نیروهای اسرائیلی شورای امنیت سازمان ملل متحد روز دوشنبه به درخواست فرانسه جلسه اضطراری برگزار خواهد کرد.
+
+آقای مکرون همچنین پس از صحبت با رهبران منطقه‌ای در پیامی در شبکه اجتماعی ایکس گفت که دستیابی سریع به توافق بین ایالات متحده و ایران «ضروری» است.
+
+رئیس جمهور فرانسه با محمد بن سلمان، ولیعهد عربستان سعودی، هیثم بن طارق، سلطان عمان، محمد بن زاید، رئیس امارات متحده عربی و عبدالفتاح سیسی، همتای مصری خود گفتگو کرد.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390705
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390705_1780267806.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390704
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390704_1780267807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A10
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390703
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390703_1780267807.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون مار از منی که تو ایران با وجود جمهوری‌اسلامی زندگی میکنم خوشبخت‌تره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو برای شروع جام‌جهانی خیلی وایرال شده که میپرسه کدوم تیم قهرمان جام‌جهانی میشه؟ 🏆
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390699
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390699_1780267808.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رهبری‌فر در این ویدیو می‌گه «چون علی خامنه‌ای کشته شده و من خودمو فرزند او می‌دونم پس من الان فرزند شهیدم!‌»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390698
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390698_1780267809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+ مسعود لج نکن بیا بریم کار داریم
+- من سوار هلیکوپتر نمیشم
++ هلیکوپتر کدومه دکتر؟!
+- من استخر هم نمیام
++ لابد تو‌ حموم واجبی هم نمیزنی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390697
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390697_1780267809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس هم تاید کرد پزشکیان استعفا داده
+نمیدونم چرا این خبر ذره‌ای بکیرم نیست
+چون ما میدونستیم رییس جمهور در جمهوری اسلامی دلقکی بیش نیست
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ملت ورداشتن عکسای این چادری کافه‌ایارو بی‌حجاب کردن دارن پخش میکنن 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم استعفای پزشکیان رو تکذیب کرد
+تسنیم خبر مرگ لاریجانی رو هم تکذیب کرد
+تسنیم خبر مرگ تنگسیری رو هم تکذیب کرد
+تو فقط تکذیب کن:)))
+
+
+تو جمهوری‌اسلامی رسمه که هر وقت میخوان یک خبر یا اتفاقی رو آروم آروم به مردم بگن، اول میدن به تسنیم تکذیبش کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 01:20
 ---
 
